@@ -5,5 +5,5 @@ section[data-type="chapter"] {
 }
 
 nav[data-type="toc"] a[href]::after {
-  content: " [Page " target-counter(attr(href), page) "]"
+  content: " [Página " target-counter(attr(href), page) "]"
 }
