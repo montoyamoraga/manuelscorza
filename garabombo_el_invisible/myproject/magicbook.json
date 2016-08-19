@@ -3,7 +3,7 @@
   "destination" : "build/:build",
   "files" : [
     "content/toc.html",
-    "content/noticia.md"
+    "content/noticia.md",
     "content/capitulo_01.md"
   ],
   "builds" : [
