@@ -1,5 +1,5 @@
 {
-  "title" : "Garabombo, El Invisible",
+  "title" : "Garabombo, el invisible",
   "destination" : "build/:build",
   "files" : [
     "content/toc.html",
