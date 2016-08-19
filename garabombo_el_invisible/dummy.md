@@ -1,1 +1,0 @@
-# book_manuel_scorza
