@@ -186,6 +186,4 @@ Lo interrumpió el burlón relincho de Girasol.
 
  - Granizará - dijo el Abigeo -. El cruce de la cordillera puede ser bravo. ¡Mejor nos vamos! Quédate con la botella Garabombo.
 
- El Ladrón de Caballos gritó algunas órdenes y los caballos comenzaron a desfilar hacia Oyón. Pronto el cielo se deshizo en gruesos perdigones. SE perdieron en la nevada.
-
- 
+ El Ladrón de Caballos gritó algunas órdenes y los caballos comenzaron a desfilar hacia Oyón. Pronto el cielo se deshizo en gruesos perdigones. Se perdieron en la nevada.
