@@ -32,7 +32,7 @@ all rights belong to whoever has them. this project is about making manuel scorz
 
 ## thanks
 
-thanks to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) project was used to make this project possible.
+thanks to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) project made this project possible.
 
 ## license
 
