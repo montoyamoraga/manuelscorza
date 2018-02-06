@@ -4,7 +4,7 @@
 
 [manuel scorza](https://en.wikipedia.org/wiki/Manuel_Scorza) was a peruvian poet, novelist and political activist.
 
-his books are currently hard to find, out of print or too expensive, so this project aims to make his works widely available, both in the original Spanish and in english.
+his books are currently hard to find, out of print or too expensive, so this project aims to make his works widely available, both in the original spanish and in english.
 
 ## books
 
