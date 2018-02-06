@@ -34,6 +34,10 @@ all rights belong to whoever has them. this project is about making manuel scorz
 
 thanks to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) project made this project possible.
 
+## videos
+
+{% include vimeoPlayer.html id="207707823" %}
+
 ## license
 
 mit
