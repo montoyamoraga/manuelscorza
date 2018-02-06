@@ -1,14 +1,8 @@
-# manuelscorza
-
 ## about
 
-this is a project by [aarón montoya-moraga](http://montoyamoraga.io/).
+[manuel scorza](https://en.wikipedia.org/wiki/Manuel_Scorza) was a peruvian poet, novelist and political activist.
 
-[manuel scorza](https://en.wikipedia.org/wiki/Manuel_Scorza) is my favorite artist. his books are hard to find, so i am making them available here, in both spanish and english.
-
-the spanish transcripts are taken from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/). the english translations are done by aarón montoya-moraga.
-
-all rights belong to whoever has them. this project is about making manuel scorza's work more accesible and readily available for wider audiences. if you have any issue with this please contact me at montoyamoraga@gmail.com.
+his books are currently hard to find, out of print or too expensive, so this project aims to make his works widely available, both in the original Spanish and in english.
 
 ## books
 
@@ -30,13 +24,34 @@ all rights belong to whoever has them. this project is about making manuel scorz
 * la tumba del relámpago (1979)
 * la danza inmóvil (1983)
 
-## thanks
-
-thanks to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) project made this project possible.
-
 ## videos
 
-{% include vimeoPlayer.html id="207707823" %}
+{% include vimeoPlayer.html id="254436587" %}
+
+{% include vimeoPlayer.html id="254435743" %}
+
+## credits
+
+this is a project by [aarón montoya-moraga](http://montoyamoraga.io/).
+
+about the texts:
+* every release is available both in spanish and english, in both pdf and markdown formats.
+* the spanish originals were transcribed from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
+* the english translations were done by [aarón montoya-moraga](http://montoyamoraga.io/).
+* the text was processed using the [magicbook](https://github.com/magicbookproject/magicbook) library.
+
+the videos were retrieved from these sources:
+
+* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.
+* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza is interviewed by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
+
+all rights belong to whoever has them. if you have any issue with this project please contact aarón at montoyamoraga@gmail.com.
+
+## thanks
+
+* to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) library made this project possible.
+* to [youtube-dl](https://rg3.github.io/youtube-dl/) for making a cool command-line tool to download videos from the terminal.
+* to [adam garrett-harris](http://www.adamwadeharris.com/) for his code to embed vimeo videos on github pages.
 
 ## license
 
