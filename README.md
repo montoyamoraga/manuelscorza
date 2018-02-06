@@ -51,7 +51,7 @@ all rights belong to whoever has them. if you have any issue with this project p
 
 * to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) library made this project possible.
 * to [youtube-dl](https://rg3.github.io/youtube-dl/) for making a cool command-line tool to download videos from the terminal.
-* to [adam garrett-harris](http://www.adamwadeharris.com/) for his code to embed vimeo videos on github pages.
+* to [adam garrett-harris](http://www.adamwadeharris.com/) for his [code](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) to embed vimeo videos on github pages.
 
 ## license
 
