@@ -40,7 +40,7 @@ de su cárcel de ceniza.
 El poeta encenderá la hoguera  
 donde se queme este mundo sombrío.  
 
-## AMÉRICA NO PUEDO ESCRIBIR TU NOMBRE SIN MORIRME
+## AMÉRICA, NO PUEDO ESCRIBIR TU NOMBRE SIN MORIRME
 
 América,  
 no puedo escribir tu nombre sin morirme.  
@@ -87,9 +87,9 @@ América de los encarcelados,
 América de los perseguidos,  
 América de los parientes pobres!  
 ¡Nadie te verá si no deshacen  
-este nudo que tengo en la garganta!  s
+este nudo que tengo en la garganta!  
 
-## ALTA ERES AMÉRICA
+## ALTA ERES, AMÉRICA
 
 Alta eres, América,  
 pero qué triste.  
@@ -319,7 +319,7 @@ ni muchachas risueñas de amor.
 Yo apenas recuerdo un país tan pobre  
 qu ni en el ocaso da sombra.  
 
-PATRIA TRISTÍSIMA  
+## PATRIA TRISTÍSIMA  
 
 ¡Ay, Perú, patria tristísima!  
 ¿Dónde vieron los poetas pájaros transparentes?  
@@ -354,7 +354,7 @@ No se puede apagar con saliva mi pecho ardiendo,
 no se puede pegar con palomas mi patria rota,  
 mi América en pedazos, mi amor, mi agonía.  
 
-PATRIA TIERNA  
+## PATRIA TIERNA  
 
 La patria es tierna,  
 decíanme en la infancia;  
@@ -394,7 +394,7 @@ tu pata de caballo ronco.
 ¡Malhaya patria que nos diste rostro  
 sólo para que corrieran lágrimas tan largas!  
 
-PATRIA DIAMANTINA
+## PATRIA DIAMANTINA
 
 ¡Ay, hermosa,  
 cuántas veces, desde lejos, te vi pasar!  
@@ -448,7 +448,7 @@ no puedo perdonar.
 ¡He de llorar hasta que digan  
 que estoy sentado al fondo del mar!  
 
-EL DESTERRADO  
+## EL DESTERRADO  
 
 Cuando éramos niños  
 y los padres nos negaban  
@@ -476,7 +476,7 @@ que estamos en una cárcel de muros movedizos.
 
 Y es imposible regresar.  
 
-GORRIÓN DULCÍSIMO  
+## GORRIÓN DULCÍSIMO  
 
 > El Perú es un organismo enfermo:  
 > donde se aplica el dedo brota pus.  
@@ -530,7 +530,7 @@ y carcajearte de nuestros calcetines rotos.
 Ay, más me valiera comer penumbra,  
 más valiera amarnos en el lodo con las sapas.  
 
-USTEDES TIENEN LAS TARDES  
+## USTEDES TIENEN LAS TARDES  
 
 Ustedes tienen las tardes,  
 siembran los hijos,  
@@ -572,7 +572,7 @@ la patria no come pan malvado.
 Mientras no me soltéis,  
 no entrará en vuestra casa.  
 
-NO QUIERO CANTAR  
+## NO QUIERO CANTAR  
 
 No quiero cantar.  
 ¿Para qué voy a cantar?  
@@ -609,7 +609,7 @@ Es inútil, es inútil.
 No me busques,  
 estoy lejos.  
 
-PUEBLOS AMADOS
+## PUEBLOS AMADOS
 
 Pueblos amados,  
 poetas fulgurantes,  
@@ -671,7 +671,7 @@ danos la libertad que no termina.
 
 # 3 Espero la mañana  
 
-LOS POETAS  
+## LOS POETAS  
 
 Ustedes, poetas,  
 ¿qué creían?  
@@ -711,7 +711,7 @@ En verdad, os digo:
 antes de que cante el gallo,  
 lloraréis mil veces.  
 
-ANTES DEL CANTO  
+## ANTES DEL CANTO  
 
 Antes de la primera letra,  
 antes aun de la primera página,  
@@ -759,7 +759,7 @@ para que en otras vidas ellos fueran inmortales
 y en alguna parte  
 volviera a crecer el talllo de sus risas rotas.  
 
-UNA CANCIÓN PARA MI ABUELO  
+## UNA CANCIÓN PARA MI ABUELO  
 
 Abuelo:
 tú nunca fuiste feliz.  
@@ -811,7 +811,7 @@ en primavera, y abuela
 y maría y paloma, todos los días vendremos  
 a regar la parcela de alba que nos toque.  
 
-SEÑORES ABUELOS  
+## SEÑORES ABUELOS  
 
 Señores abuelos,  
 ¡abuelos que no fuisteis mis abuelos!  
@@ -865,7 +865,7 @@ creced tranquilos,
 cantad conmigo,  
 mirad la aurora.  
 
-VOY A LAS BATALLAS
+## VOY A LAS BATALLAS
 
 América,  
 aquí te dejo.  
