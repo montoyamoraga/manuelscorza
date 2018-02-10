@@ -612,3 +612,351 @@ No me busques,
 estoy lejos.  
 
 PUEBLOS AMADOS
+
+Pueblos amados,  
+poetas fulgurantes,  
+padres remotos,  
+amigos queridos,  
+dais asco.  
+Me voy.  
+¡Que conste!  
+¡No me complico!  
+
+A mí no me vengan con la patria espuma.  
+La patria hiede,  
+desgraciadamente la patria vomita buitres.  
+¡A mí no me digan: "hay visitas"!  
+¿Hasta cuándo la patria  
+será el muro donde orinan los gendarmes?  
+Ay, ¿hasta cuando serás la ramera  
+con la que sólo se acuestan los borrachos?  
+
+¡Hagan lo que quieran!  
+Enfanguen al puro,  
+enjoyen al ladrón,  
+coronen al asesino,  
+enmierden al héroe,  
+cáiganse de risa.  
+¡Está bien, pero no me compliquen!  
+
+Ay, patria, ay, enemiga,  
+¿con qué me has mojado  
+que no puedo secarme?  
+Se me pasan los días  
+untando con tristeza los papeles,  
+marcando tu dolor se me pasa la vida.  
+Ya me apagué,  
+ya no soy nada,  
+no encuentro la palabra que te libre,  
+la voz que te alce, la luz que te limpie.  
+
+¿Qué pasa, amor mío?  
+He visto a los pueblos llorar en silencio,  
+caen los luceros podridos,  
+estoy viendo mi pecho llenarse de herrumbre.  
+¡Libértate, amada!  
+¡Asesina, levántate, te ruego!  
+Yo canto en vano si estás caída,  
+yo no soy nada si tú enmudeces,  
+estiércol soy si a ti te humillan.  
+
+Vuelve en ti, vagabunda.  
+No es verdad lo que digo.  
+Las praderas no pueden olvidarte.  
+Cuando nadie las mira, lloran las piedras.  
+Los corderos te extrañan, los borrachos te extrañan,  
+mi corazón te extraña.  
+Sácame del pecho las espinas,  
+borra los malos sueños,  
+enciende la Luz que no se extingue,  
+danos la libertad que no termina.  
+
+## 3 Espero la mañana  
+
+LOS POETAS  
+
+Ustedes, poetas,  
+¿qué creían?  
+Cantaban  
+bellísimas canciones;  
+en vuestra tarde hermosa  
+sólo sonaba  
+el murmullo amarillo de la fuente;  
+los poetas tejían  
+enredaderas de espuma  
+alrededor de las muchachas;  
+los poetas decían:  
+*las aguas son transparentes*  
+*como si debajo agitaran candelabros encendidos*.
+Aquí algo humeaba;  
+no era nada,  
+era gente desconocida;  
+el humo salía de los ojos del mundo,  
+quemaba cisnes, mataba flores,  
+y ustedes, poetas, cantaban.  
+
+¡Era difícil interrumpir la melodía!  
+Cómo iban los poetas a decir:  
+"No hay papas",  
+"Está sucia mi camisa",  
+"La niña llora por su pan descalabrado",  
+"No tengo para el alquiler",  
+"No puedo, vuelva a fin de mes".  
+
+Ay, poetas,  
+ahora el beso  
+en los labios se nos pudre;  
+muertos estamos  
+de comer barbudas aves.  
+
+En verdad, os digo:  
+antes de que cante el gallo,  
+lloraréis mil veces.  
+
+ANTES DEL CANTO  
+
+Antes de la primera letra,  
+antes aun de la primera página,  
+yo escribí este libro.  
+Cuando era tan pequeño  
+que todo mi dolor cabía en un verso;  
+después, temblando entre los años,  
+cuando ya no bastaban  
+todas las tardes de muchas vidas.  
+
+Tal vez cuando comprendí  
+que la dicha era un remoto recuerdo de familia,  
+o cuando lavando el rostro padre  
+se me mojó la mano de tiniebla,  
+o cuando la patria empezó a salírseme a borbotones,  
+ardió en mí la primera cólera.  
+
+Lentamente,  
+ruina a ruina,  
+muerte a muerte,  
+mi corazón se pobló de herrumbre  
+y cuando llegó el día  
+me bastó abrir el pecho  
+para que salieran mis muertos queridos:  
+Alejo, interminable amigo,  
+Adela, tan dulce,  
+Pedro Marca, hoy sin boca,  
+Mariano, creciendo solo en su celda,  
+Ramiro y su corazón azul de tanto golpe,  
+gentes que amé desde la infancia,  
+¿dónde estaban?  
+Rotos,  
+llovidos,  
+hasta la última hilacha desgastados.  
+Ay, todos navegaban por la muerte,  
+yo estaba encallado entre los vivos.  
+
+Entonces  
+comprendí  
+que yo también moriría  
+si no alzaba en mis versos  
+la vida que demolía el incendio,  
+y escribí estas canciones  
+para que en otras vidas ellos fueran inmortales  
+y en alguna parte  
+volviera a crecer el talllo de sus risas rotas.  
+
+UNA CANCIÓN PARA MI ABUELO  
+
+Abuelo:
+tú nunca fuiste feliz.  
+Temías que el viento  
+desbaratase tu corazón de ceniza.  
+Te recuerdo una tarde negra,  
+diciéndome con voz blanca:  
+*ojalá no seas,*  
+*como yo, un hombre triste.*  
+Abuelo:  
+la vida te parecía  
+un pozo de malos sueños.  
+Cuando pensabas en la abuela  
+te quemaba una hoguera sin luz.  
+
+Y Juan, el herrero,  
+Y Pedro, el sembrador,  
+(pájaros huesos  
+con quienes conversa tu lengua de hierba),  
+también creían  
+que la vida es un sueño confuso.  
+¡Qué lástima, abuelo,  
+que no supieras que la vida tiene otro color!  
+
+¿Me oyes, me escuchas?  
+La tristeza va a morir.  
+Ahora, cuando la alondra  
+surca el cielo,  
+algo rosado empapa el alma,  
+porque el ave  
+viene del color que tendrá la vida  
+cuando los humillados alcen la cabeza  
+y partan la dicha  
+en pedacitos que alcancen para todos;  
+¿me oyes, me escuchas?,  
+ardiendo  
+está el mundo donde te ahogabas.  
+
+Perdona, pues si te dejo,  
+pero me llaman, necesitan  
+mi mano para formar una ronda alrededor del mundo.  
+Mas luego volveré.  
+Cuando la Libertad abra sus alas  
+sobre mi país desesperado,  
+volveré.  
+
+Volveré con todos los nietos del mundo  
+en primavera, y abuela  
+y maría y paloma, todos los días vendremos  
+a regar la parcela de alba que nos toque.  
+
+SEÑORES ABUELOS  
+
+Señores abuelos,  
+¡abuelos que no fuisteis mis abuelos!  
+¿De dónde sacabais fuerza  
+para seguir viviendo?  
+Cuando miro el pozo  
+adonde goteaba vuestra vida,  
+y toco las Señas  
+que el dolor dejaba en vuestros rostros  
+para que no se equivocara  
+el Gran Talador  
+legado el Tiempo del Buen Corte,  
+la blancura  
+anochece en mi garganta.  
+
+Oh, abuelos,  
+qué ceniza la vida,  
+qué difícil cerrar los ojos  
+sabiendo que los que iban a pudrirse  
+se quedaban arriba  
+pobrecitos,  
+tiritando,  
+mal parados en sus tobillos,  
+lluviosos,  
+solitarios,  
+con espinas.  
+
+Cesad, abuelos:  
+no se perdió nada;  
+todo lo oí,  
+lo recogí todo;  
+lágrimas,  
+desesperación,  
+fatiga,  
+salen de mis labios sonriendo.  
+
+A vosotros,  
+que sois la flor de las patatas,  
+a vosotros, labios de hierba,  
+os digo:  
+vuestros nietos cantarán.  
+
+Se van los malos.  
+La vida será, por fin, la vida.  
+¿Oís,  
+estáis oyendo?  
+Es la Libertad,  
+la patria, la dulzura, los amores.  
+Subid amados,  
+creced tranquilos,  
+cantad conmigo,  
+mirad la aurora.  
+
+VOY A LAS BATALLAS
+
+América,  
+aquí te dejo.  
+Me voy a las batallas.  
+Luchar es más hermoso que cantar.  
+Yo te digo,  
+a pesar del dolor,  
+a pesar de las patrias derrumbadas,  
+ama a los gorriones.  
+Yo sé que es difícil  
+hallar entre las tumbas un lugar para la risa.  
+Yo mismo, a veces, caigo,  
+y el viento  
+levanta mi cara como una alfombra rota,  
+pero aun en las celdas,  
+bajo la lluvia,  
+yo no perdí la fe.  
+
+Amigos,  
+aunque os golpeen,  
+jamás perdáis la fe;  
+aunque vengan días sucios,  
+jamás perdáis la fe,  
+aunque yo mismo os ruegue de rodillas,  
+no me creáis,  
+amad la vida,  
+¡guardad rocío  
+para que las flores  
+no padezcan las noches canallas que vendrán!  
+Sed felices, os ruego  
+salid de los cuartos sombríos,  
+sed felices para que yo no muera.  
+Yo no escribí estos cantos  
+para dar espuma a las muchachas.  
+Yo canté porque los dolores  
+ya no cabían en mi boca:  
+yo siempre estuve aquí  
+peleando con mastines de pavorosa nieve;  
+conozco todas las caras,  
+he visto a los deudores tratando  
+de meterse en sus zapatos cada amanecer.  
+¿Dónde no estuve?,  
+¿en qué pantano no bebí?,  
+¿a qué pozo malo no rodé?  
+
+Ay, a mi alma caían las cáscaras  
+que amargas cocineras pelaban.  
+Amigos: en mi corazón jamás reinó silencio,  
+yo oí todas las voces,  
+escuché a las sábanas quejarse,  
+supe cuando las ciradas escribían cartas de tristeza,  
+y cuando no llegó a tiempo el único pie del cojo,  
+y canté, América, los dolores,  
+y recliné en ti mi cabeza.  
+Mas ahora digo:  
+degollad la tristeza,  
+cantad frente al mar.  
+Dadme la mano, amigos,  
+Amo la tierra flaca  
+que me siguió cojeando a los destierros.  
+No quise confesarlo antes.  
+Era difícil,  
+me ahogaba el esqueleto,  
+el aire me dolía,  
+la voz me llagaba  
+pero ahora te amo.  
+No soy nada,  
+no soy herrero,  
+ni jinete, ni sembrador.  
+Yo sólo sé cantar, pero te amo:  
+¡también la aurora se construye con canciones!  
+
+¡Amigos,  
+os encargo reír!  
+Amad a las muchachas,  
+cuidad a los jazmines,  
+preservad al gorrión.  
+No me busquen amargos en la noche:  
+yo espero cantando la mañana.  
+
+Un gran viento se levanta.  
+Hay demasiado dolor.  
+Un gran viento se levanta.  
+He visto arder extraños ríos.  
+Un gran viento se levanta,  
+preparad la hoguera,  
+preparaos.  
+
+Aquí dejo mi poesía  
+para que los desdichados se laven la cara.  
+Buscadme cuando amanezca.  
+Ente la hierba estoy cantando.  
