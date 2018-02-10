@@ -1,6 +1,6 @@
 # 1 El árbol de los gemidos
 
-## EPÍSTOLA A LOS POETAS QUE VENDRÁN
+## Epístola a los poetas que vendrán
 
 Tal vez mañana los poetas pregunten  
 por qué no celebramos la gracia de las muchachas;  
@@ -40,7 +40,7 @@ de su cárcel de ceniza.
 El poeta encenderá la hoguera  
 donde se queme este mundo sombrío.  
 
-## AMÉRICA, NO PUEDO ESCRIBIR TU NOMBRE SIN MORIRME
+## América, no puedo escribir tu nombre sin morirme
 
 América,  
 no puedo escribir tu nombre sin morirme.  
@@ -89,7 +89,7 @@ América de los parientes pobres!
 ¡Nadie te verá si no deshacen  
 este nudo que tengo en la garganta!  
 
-## ALTA ERES, AMÉRICA
+## Alta eres, América
 
 Alta eres, América,  
 pero qué triste.  
@@ -140,7 +140,7 @@ Por favor, ¡abran las ventanas!
 Aquí el pájaro no es pájaro.  
 sino pena con plumas.  
 
-## SOY EL DESTERRADO
+## Soy el desterrado
 
 América,  
 a mí también debes oírme.  
@@ -186,7 +186,7 @@ Ahora vengo a ti gimiendo,
 aquí está mi voz encarcelada,  
 aquí estoy yo, debajo de esta frente, derrumbado.  
 
-## ¡AÑOS DE LOS CASTIGOS!
+## ¡Años de los castigos!
 
 ¡Años de los castigos!  
 ¡Años de las prisiones!  
@@ -222,7 +222,7 @@ toca el gallo su corneta lastimera.
 ¡Oscura es la vida,  
 la tierra sólo sirve para enterrarnos!  
 
-## AMÉRICA, VUELVE A TU CASA
+## América, vuelve a tu casa
 
 América,  
 ¿qué esperas para volver?  
@@ -283,7 +283,7 @@ y marchará mi polvo tras tu bandera rota.
 
 # 2 Patria pobre  
 
-## PATRIA POBRE  
+## Patria pobre
 
 Yo conocí en mi patria sólo rostros vacíos,  
 hombres de mirada prematuramente cana,  
@@ -319,7 +319,7 @@ ni muchachas risueñas de amor.
 Yo apenas recuerdo un país tan pobre  
 qu ni en el ocaso da sombra.  
 
-## PATRIA TRISTÍSIMA  
+## Patria tristísima
 
 ¡Ay, Perú, patria tristísima!  
 ¿Dónde vieron los poetas pájaros transparentes?  
@@ -354,7 +354,7 @@ No se puede apagar con saliva mi pecho ardiendo,
 no se puede pegar con palomas mi patria rota,  
 mi América en pedazos, mi amor, mi agonía.  
 
-## PATRIA TIERNA  
+## Patria tierna
 
 La patria es tierna,  
 decíanme en la infancia;  
@@ -394,7 +394,7 @@ tu pata de caballo ronco.
 ¡Malhaya patria que nos diste rostro  
 sólo para que corrieran lágrimas tan largas!  
 
-## PATRIA DIAMANTINA
+## Patria diamantina
 
 ¡Ay, hermosa,  
 cuántas veces, desde lejos, te vi pasar!  
@@ -448,7 +448,7 @@ no puedo perdonar.
 ¡He de llorar hasta que digan  
 que estoy sentado al fondo del mar!  
 
-## EL DESTERRADO  
+## El desterrado
 
 Cuando éramos niños  
 y los padres nos negaban  
@@ -476,12 +476,12 @@ que estamos en una cárcel de muros movedizos.
 
 Y es imposible regresar.  
 
-## GORRIÓN DULCÍSIMO  
+## Gorrión dulcísimo
 
 > El Perú es un organismo enfermo:  
 > donde se aplica el dedo brota pus.  
 
-MANUEL GONZÁLEZ PRADA  
+Manuel González Prada
 
 Perú, gorrión dulcísimo,  
 te oigo llorar,  
@@ -530,7 +530,7 @@ y carcajearte de nuestros calcetines rotos.
 Ay, más me valiera comer penumbra,  
 más valiera amarnos en el lodo con las sapas.  
 
-## USTEDES TIENEN LAS TARDES  
+## Ustedes tienen las tardes  
 
 Ustedes tienen las tardes,  
 siembran los hijos,  
@@ -572,7 +572,7 @@ la patria no come pan malvado.
 Mientras no me soltéis,  
 no entrará en vuestra casa.  
 
-## NO QUIERO CANTAR  
+## No quiero cantar  
 
 No quiero cantar.  
 ¿Para qué voy a cantar?  
@@ -609,7 +609,7 @@ Es inútil, es inútil.
 No me busques,  
 estoy lejos.  
 
-## PUEBLOS AMADOS
+## Pueblos amados  
 
 Pueblos amados,  
 poetas fulgurantes,  
@@ -671,7 +671,7 @@ danos la libertad que no termina.
 
 # 3 Espero la mañana  
 
-## LOS POETAS  
+## Los poetas  
 
 Ustedes, poetas,  
 ¿qué creían?  
@@ -711,7 +711,7 @@ En verdad, os digo:
 antes de que cante el gallo,  
 lloraréis mil veces.  
 
-## ANTES DEL CANTO  
+## Antes del canto    
 
 Antes de la primera letra,  
 antes aun de la primera página,  
@@ -759,7 +759,7 @@ para que en otras vidas ellos fueran inmortales
 y en alguna parte  
 volviera a crecer el talllo de sus risas rotas.  
 
-## UNA CANCIÓN PARA MI ABUELO  
+## Una canción para mi abuelo  
 
 Abuelo:
 tú nunca fuiste feliz.  
@@ -811,7 +811,7 @@ en primavera, y abuela
 y maría y paloma, todos los días vendremos  
 a regar la parcela de alba que nos toque.  
 
-## SEÑORES ABUELOS  
+## Señores abuelos  
 
 Señores abuelos,  
 ¡abuelos que no fuisteis mis abuelos!  
@@ -865,7 +865,7 @@ creced tranquilos,
 cantad conmigo,  
 mirad la aurora.  
 
-## VOY A LAS BATALLAS
+## Voy a las batallas
 
 América,  
 aquí te dejo.  
