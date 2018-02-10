@@ -486,3 +486,129 @@ GORRIÓN DULCÍSIMO
 MANUEL GONZÁLEZ PRADA  
 
 Perú, gorrión dulcísimo,  
+te oigo llorar,  
+¿qué pasa, qué está pasando?  
+El sol acongojado,  
+la verdura desolada,  
+el rocío deshecho,  
+el mar, la primavera,  
+ya no pueden con las lágrimas,  
+¿qué pasa, tierra mía, qué está pasando?  
+
+Ay, desgraciadamente,  
+Perú, con odio tu nombre escribo.  
+Talado está el árbol de los relámpagos,  
+seco está el río de los valientes.  
+Oh mendigo,  
+sirviente inmenso  
+que te arrastras ante los cerdos  
+que chapotean en esta gran charca de los gemidos.  
+
+Respóndeme:  
+¿fuiste torrente para ser pantano?,  
+¿en este pozo cayó mi alondra?,  
+¿en este cerdo acabó tu toro?  
+¿salieron del cobre los guerreros,  
+domaron ruiseñores,  
+imperios esmeraldas,  
+torres elevaron  
+para que tú, ahora, pordiosera,  
+te arrastres ante los sapos?  
+Pariste huracanes,  
+¿para ser mendiga,  
+la reina de los piojos?  
+
+¡No!  
+¡No traigan palomas!  
+¡Está la patria amarga!  
+¡Miradla!  
+¡Donde se pone el dedo salta pus!  
+
+¡Libértanos, patria!  
+No seas valiente  
+sólo para rompernos la boca,  
+y destrozar la muñeca de la niña,  
+y carcajearte de nuestros calcetines rotos.  
+Ay, más me valiera comer penumbra,  
+más valiera amarnos en el lodo con las sapas.  
+
+USTEDES TIENEN LAS TARDES  
+
+Ustedes tienen las tardes,  
+siembran los hijos,  
+maduran los sueños,  
+cosechan los besos;  
+ustedes tienen las tardes,  
+pero no tienen patria.  
+
+Cuando un pueblo cae,  
+y los hombres callan,  
+y el Viento pregunta  
+y nadie responde,  
+y los hombres se enfangan  
+(amarran a la vergüenza)  
+y nadie se muerde el corazón llorando,  
+la patria se aleja,  
+se va con los humildes a comer destierros,  
+se pone terribles ropas pobres.  
+
+Porque ésta no es mi patria,  
+éstos no son sus ojos,  
+cambiaron su cara mientras dormía.  
+El pobre, el oscuro, el desterrado,  
+el que sobra siempre en la mesa,  
+son el Perú, oídme,  
+escuchadme clamar,  
+bajad a ver qué larga herida.  
+Yo soy la voz de los que nunca se quejaron,  
+el toro que hace siglos embiste en nuestra sangre.  
+
+Vengo a conmover las piedras más roncas,  
+¡alguien tiene que emocionarse con mi voz!  
+¡Santos, traidores, asesinos,  
+llorad sobre mi hombro!  
+¡Todos caben en el canto!  
+
+Yo os digo:  
+la patria no come pan malvado.  
+Mientras no me soltéis,  
+no entrará en vuestra casa.  
+
+NO QUIERO CANTAR  
+
+No quiero cantar.  
+¿Para qué voy a cantar?  
+Meses manchados,  
+lágrimas quemadas  
+sollocé para que desencadenaras mi corazón  
+mientras tú lamías  
+las pezuñas que me humillaban.  
+¡Qué te importa que las cocineras  
+salen las sopas  
+para que sientan todos lo amargo de sus lágrimas!  
+
+Yo te quería.  
+¿Quién como yo te quería?  
+Yo temblaba  
+hasta cuando el rocío  
+mojaba tu dulzura,  
+pero no volveré a quererte.  
+Me voy,  
+¿me oyes?  
+¿siempre serás el hombre pobre,  
+la sonrisa deshabitada,  
+el pariente que avergüenza?,  
+¿eternamente  
+cubrirás mi amor de estiércol?  
+
+Pordiosera,  
+no vuelvas a buscarme.  
+Mientras seas la mujerzuela de los generales,  
+no vuelvas a buscarme.  
+No volveré.  
+No me pondré el traje hediondo.  
+Es inútil, es inútil.  
+No me busques,  
+estoy lejos.  
+
+PUEBLOS AMADOS
