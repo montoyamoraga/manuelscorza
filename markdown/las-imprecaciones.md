@@ -4,38 +4,38 @@
 
 EPÍSTOLA A LOS POETAS QUE VENDRÁN
 
-Tal vez mañana los poetas pregunten
-por qué no celebramos la gracia de las muchachas;
-tal vez mañana los poetas pregunten
-por qué nuestros poemas
-eran largas avenidas
-por donde venía la ardiente cólera.
+Tal vez mañana los poetas pregunten  
+por qué no celebramos la gracia de las muchachas;  
+tal vez mañana los poetas pregunten  
+por qué nuestros poemas  
+eran largas avenidas  
+por donde venía la ardiente cólera.  
 
-Yo respondo:
-por todas partes oíamos el llanto,
-por todas partes nos sitiaba un muro de olas negras.
-¿Iba a ser la Poesía
-una solitaria columna de rocío?
-Tenía que ser un relámpago perpetuo.
+Yo respondo:  
+por todas partes oíamos el llanto,  
+por todas partes nos sitiaba un muro de olas negras.  
+¿Iba a ser la Poesía  
+una solitaria columna de rocío?  
+Tenía que ser un relámpago perpetuo.  
 
-Mientras alguien padezca,
-la rosa no podrá ser bella;
-mientras alguien mire el pan con envidia,
-el trigo no podrá dormir;
-mientras llueva sobre el pecho de los mendigos,
-mi corazón no sonreirá-
+Mientras alguien padezca,  
+la rosa no podrá ser bella;  
+mientras alguien mire el pan con envidia,  
+el trigo no podrá dormir;  
+mientras llueva sobre el pecho de los mendigos,  
+mi corazón no sonreirá-  
 
-Matad la tristeza, poetas.
-Matemos a la tristeza con un palo.
-No digáis el romance de los lirios.
-Hay cosas más altas
-que llorar amores perdidos:
-el rumor de un pueblo que despierta
-¡es más bello que el rocío!
-El metal resplandeciente de su cólera
-¡es más bello que la espuma!
-Un Hombre Libre
-¡es más puro que el diamante!
+Matad la tristeza, poetas.  
+Matemos a la tristeza con un palo.  
+No digáis el romance de los lirios.  
+Hay cosas más altas  
+que llorar amores perdidos:  
+el rumor de un pueblo que despierta  
+¡es más bello que el rocío!  
+El metal resplandeciente de su cólera  
+¡es más bello que la espuma!  
+Un Hombre Libre  
+¡es más puro que el diamante!  
 
 El poeta libertará al fuego
 de su cárcel de ceniza.
@@ -480,8 +480,9 @@ Y es imposible regresar.
 
 GORRIÓN DULCÍSIMO
 
-El Perú es un organismo enfermo:
-donde se aplica el dedo brota pus.
+> El Perú es un organismo enfermo:
+> donde se aplica el dedo brota pus.
+
 MANUEL GONZÁLEZ PRADA
 
 Perú, gorrión dulcísimo,
