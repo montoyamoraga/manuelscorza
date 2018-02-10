@@ -2,6 +2,7 @@
   "title" : "Manuel Scorza - Las imprecaciones (1955)",
   "destination" : "build/:build",
   "files" : [
+    "content/cover.html",
     "content/toc.html",
     "content/las-imprecaciones.md"
   ],

@@ -1,7 +1,11 @@
 @import 'shared';
 
+section[data-type="cover"] {
+  page-break-after: after;
+}
+
 section[data-type="chapter"] {
-  page-break-after: before;
+  page-break-after: after;
 }
 
 section[data-type="sect1"] {
