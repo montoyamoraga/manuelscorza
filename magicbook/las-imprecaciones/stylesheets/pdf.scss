@@ -4,6 +4,14 @@ section[data-type="chapter"] {
   page-break-after: always;
 }
 
+section[data-type="sect1"] {
+    page-break-after: always;
+}
+
+section[data-type="sect2"] {
+    page-break-after: always;
+}
+
 nav[data-type="toc"] a[href]::after {
   content: " [Page " target-counter(attr(href), page) "]"
 }

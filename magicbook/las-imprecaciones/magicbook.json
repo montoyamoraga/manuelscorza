@@ -1,10 +1,9 @@
 {
-  "title" : "My Book",
+  "title" : "Manuel Scorza - Las imprecaciones (1955)",
   "destination" : "build/:build",
   "files" : [
     "content/toc.html",
-    "content/first-chapter.md",
-    "content/second-chapter.html"
+    "content/las-imprecaciones.md"
   ],
   "builds" : [
     {
@@ -12,16 +11,6 @@
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
-    },
-    {
-      "format" : "html",
-      "layout" : "layouts/html.html",
-      "stylesheets" : {
-        "files" : ["stylesheets/html.scss"]
-      },
-      "javascripts" : {
-        "files" : ["javascripts/scripts.js"]
       }
     }
   ]
