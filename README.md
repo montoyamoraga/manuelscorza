@@ -10,7 +10,7 @@ his books are currently hard to find, out of print or too expensive, so this pro
 
 ### poetry
 
-* las imprecaciones (1955)
+* las imprecaciones (1955) [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md)
 * los adioses (1959)
 * desengaños del mago (1961)
 * poesía amorosa (1963)
