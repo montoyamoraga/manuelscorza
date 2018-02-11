@@ -462,3 +462,108 @@ los años se fatigan
 y no vuelves a mí los ojos.  
 Mi amor anciano se reclina  
 en el hombro poderoso de la muerte.  
+
+# Crepúsculo para Ana
+
+Sólo para alcanzarte escribí este libro.  
+Noche a noche,  
+en la helada madriguera  
+cavé mi pozo más profundo,  
+para que surgiera, más alta,  
+el agua enamorada de este anto.  
+
+Yo sé que un día las gentes  
+querrán saber por qué hay tanto rocío en las  
+praderas,  
+yo sé que un día  
+irán ansionas a los campos,  
+seguirán los hilos de los prados,  
+y a través de las florestas  
+llegarán hasta mi pecho,  
+y comprenderán,  
+-- lo siento, estoy sintiéndolo--,  
+que es mi amor quien platea por ti el mundo  
+en las mañanas,  
+y verás esta hoguera.  
+
+Desde ciudades enterradas,  
+desde salones sumergidos,  
+desde balcones lejanísimos,  
+verás este amor,  
+y escucharás mi voz  
+ardiendo de hermosura,  
+y comprenderás que sólo por ti he cansado.  
+Porque sólo por ti estoy cantando.  
+
+¡Sólo por ti resplandece  
+mi corazón extraviado!  
+¡Sólo para que me veas,  
+ilumino mi rostro oscurecido!  
+¡Sólo para que en algún lugar me mires  
+enciendo, con mis sueños, esta hoguera!  
+
+¡El Mudo,  
+El Amargo,  
+El Que Se Quedaba Silencioso,  
+te habla ahora a borbotones,  
+te grita cataratas, inmensidades!  
+
+Algún día amarás,  
+alguna vez  
+en las lianas de la ternura enredada  
+comprenderás que cuando el dolor nos llega,  
+es imposible hablar;  
+cuando la vida pesa, las manos pesan:  
+es imposible escribir.  
+
+Hasta que con los años las escamas se nos caen.  
+Y un día, al volver el rostro,  
+vemos a los lejos,  
+como remotos barcos encallados,  
+cosas que creíamos llevar dentro,  
+y miramos que son musgo los amores má aridentes.  
+¡El hombre enceguecido  
+no escucha las campanadas silenciosas de la hierba,  
+hasta que encuentra en los caminos,  
+como culebra, su antigua piel,  
+y reconoce entre las ruinas  
+su vieja máscara oxidada,  
+y descubre agujeros rotos  
+do eran ojos fulgurantes,  
+porque el tiempo crudelísimo  
+injurió el Rostro Puro,  
+y los años nos pusieron  
+anteojos de melancolía,  
+con los ojos que se mira la ruina,  
+el otoño,  
+la grosura de las mujeres!  
+
+Surge entonces  
+el Dolor inextinguible,  
+cual surge ahora esta voz  
+que llora por los días hermosos,  
+cuando la vida era azul.  
+Porque todo lo que nace ha de morir.  
+¡No digo más porque me entiendes!  
+Tú sabes que sólo quiero  
+que, en algún lugar, leas esta carta,  
+antes que envejezcan los carteros  
+que te buscan  
+a la salida de las iglesias,  
+entre las recién casadas,  
+a la hora del jazmín rendido.  
+
+¡Quiero que el rayo de mi ternunra  
+traspase con lannza a los que no conozco,
+y salte noche hirviendo  
+a los ojos de los que abran este libro,  
+y en algún lugar  
+un día de este mundo,  
+me oigas  
+y te vuelvas,  
+como quienn se vuelve extrañado  
+al sentir detrás el resplandor de un incendio,  
+y comprendas que estoy ardiendo por ti,  
+quemándome  
+sólo para que veas,  
+desde tan lejos, esta luz!
