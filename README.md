@@ -29,13 +29,11 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 
 {% include vimeoPlayer.html id="254436587" %}
 
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extract of the documentary "en parís...", by carlos allende, year 1970.
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extracto del documental "en parís...", por carlos allende, año 1970.
+* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extracto del documental "en parís...", por carlos allende, año 1970. - [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extract of the documentary "en parís...", by carlos allende, year 1970.
 
 {% include vimeoPlayer.html id="254435743" %}
 
-* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): interview by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
-* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): entrevista por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977.
+* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): entrevista por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977. - [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): interview by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
 
 ### sobre los textos - about the texts
 
