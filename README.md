@@ -10,21 +10,23 @@ his books are currently hard to find, out of print or too expensive, so this pro
 
 ### poetry
 
-* las imprecaciones (1955) [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/las-imprecaciones/build/las-imprecaciones.pdf)
+* las imprecaciones (1955)
+español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/las-imprecaciones/build/las-imprecaciones.pdf)
+english ~~[markdown](markdown) [pdf](pdf)~~
 * ~~los adioses (1959)~~
-* desengaños del mago (1961)
-* poesía amorosa (1963)
-* el vals de los reptiles (1970)
-* poesía incompleta (1970)
+* ~~desengaños del mago (1961)~~
+* ~~poesía amorosa (1963)~~
+* ~~el vals de los reptiles (1970)~~
+* ~~poesía incompleta (1970)~~
 
 ## novels
 
-* redoble por rancas (1970)
-* historia de garabombo el invisible (1972)
-* el jinete insomne (1977)
-* cantar de agapito robles (1977)
-* la tumba del relámpago (1979)
-* la danza inmóvil (1983)
+* ~~redoble por rancas (1970)~~
+* ~~historia de garabombo el invisible (1972)~~
+* ~~el jinete insomne (1977)~~
+* ~~cantar de agapito robles (1977)~~
+* ~~la tumba del relámpago (1979)~~
+* ~~la danza inmóvil (1983)~~
 
 ## videos
 
@@ -37,7 +39,7 @@ his books are currently hard to find, out of print or too expensive, so this pro
 this is a project by [aarón montoya-moraga](http://montoyamoraga.io/).
 
 about the texts:
-* every release is available both in spanish and english, in both pdf and markdown formats.
+* every work will be available both in spanish and english, in both pdf and markdown formats.
 * the spanish originals were transcribed from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
 * the english translations were done by [aarón montoya-moraga](http://montoyamoraga.io/).
 * the text was processed using the [magicbook](https://github.com/magicbookproject/magicbook) library.
