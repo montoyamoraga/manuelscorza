@@ -43,10 +43,10 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 
 ## agradecimientos - thanks
 
-* [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) library made this project possible.
-* [youtube-dl](https://rg3.github.io/youtube-dl/) for making a cool command-line tool to download videos from the terminal.
-*  [adam garrett-harris](http://www.adamwadeharris.com/) for his [code](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) to embed vimeo videos on github pages.
-* to claudia montecinos, for her suggestions and support.
+* [rune madsen](https://runemadsen.com/) por su biblioteca [magicbook](https://github.com/magicbookproject/magicbook) que hizo posible este proyecto. - [rune madsen](https://runemadsen.com/) whose [magicbook](https://github.com/magicbookproject/magicbook) library made this project possible.
+* [youtube-dl](https://rg3.github.io/youtube-dl/), por construir esta herramienta de lina de comandos para descargar videos desde la terminal. - [youtube-dl](https://rg3.github.io/youtube-dl/) for making a cool command-line tool to download videos from the terminal.
+* [adam garrett-harris](http://www.adamwadeharris.com/) por su [código](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) para incluir videos de vimeo en github pages. - [adam garrett-harris](http://www.adamwadeharris.com/) for his [code](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) to embed vimeo videos on github pages.
+* claudia montecinos, por sus sugerencias y apoyo. - claudia montecinos, for her suggestions and support.
 
 ## créditos - credits
 
