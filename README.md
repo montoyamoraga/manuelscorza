@@ -42,7 +42,7 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 * cada obra estará disponible en español y en inglés, en los formatos markdown y pdf.
 * el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/).
 * los textos en español corresponden a las obras completas de [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
-* traducciones a inglés por [aarón montoya-moraga](http://montoyamoraga.io/).
+* testing
 
 * every work will be available both in spanish and english, in both pdf and markdown formats.
 * the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.  
