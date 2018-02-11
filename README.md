@@ -57,6 +57,9 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 * [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): un extracto del documental "en parís...", por carlos allende, año 1970.
 * [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza entrevistado por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977.
 
+* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): un extracto del documental "en parís...", por carlos allende, año 1970.
+* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza entrevistado por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977.
+
 ## thanks / agradecimientos
 
 * to [rune madsen](https://runemadsen.com/), whose [magicbook](https://github.com/magicbookproject/magicbook) library made this project possible.
