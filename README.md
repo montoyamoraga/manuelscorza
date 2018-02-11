@@ -51,7 +51,7 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 
 ### about the videos / sobre los videos:
 
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.  
+* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.
 * [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza is interviewed by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
 
 * [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): un extracto del documental "en parís...", por carlos allende, año 1970.
@@ -63,7 +63,6 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 * to [youtube-dl](https://rg3.github.io/youtube-dl/) for making a cool command-line tool to download videos from the terminal.
 * to [adam garrett-harris](http://www.adamwadeharris.com/) for his [code](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) to embed vimeo videos on github pages.
 * to claudia montecinos, for her suggestions and support.
-
 
 * a [rune madsen](https://runemadsen.com/), cuya biblioteca [magicbook](https://github.com/magicbookproject/magicbook) hizo que este proyecto fuera posible.
 * a [youtube-dl](https://rg3.github.io/youtube-dl/) por hacer una genial herramienta de línea de comandos para descargar videos desde la terminal.
