@@ -481,7 +481,7 @@ seguirán los hilos de los prados,
 y a través de las florestas  
 llegarán hasta mi pecho,  
 y comprenderán,  
--- lo siento, estoy sintiéndolo--,  
+—lo siento, estoy sintiéndolo—,  
 que es mi amor quien platea por ti el mundo  
 en las mañanas,  
 y verás esta hoguera.  
