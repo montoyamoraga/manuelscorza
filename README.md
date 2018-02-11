@@ -39,25 +39,25 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 
 ### about the texts - sobre los textos
 
-* every work will be available both in spanish and english, in both pdf and markdown formats.
-* the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.  
-* the spanish originals were transcribed from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
-* the english translations were done by [aarón montoya-moraga](http://montoyamoraga.io/).
+1. every work will be available both in spanish and english, in both pdf and markdown formats.
+2. the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.  
+3. the spanish originals were transcribed from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
+4. the english translations were done by [aarón montoya-moraga](http://montoyamoraga.io/).
 
 
-* cada obra estará disponible en español y en inglés, en los formatos markdown y pdf.
-* el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/).
-* las obras originales en español fueron transcritas a partir de las obras completas publicadas por [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
-* las traducciones a inglés fueron realizadas por [aarón montoya-moraga](http://montoyamoraga.io/).
+1. cada obra estará disponible en español y en inglés, en los formatos markdown y pdf.
+2. el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/).
+3. las obras originales en español fueron transcritas a partir de las obras completas publicadas por [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
+4. las traducciones a inglés fueron realizadas por [aarón montoya-moraga](http://montoyamoraga.io/).
 
 ### about the videos - sobre los videos
 
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.
-* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza is interviewed by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
+1. [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.
+2. [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza is interviewed by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
 
 
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): un extracto del documental "en parís...", por carlos allende, año 1970.
-* [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza entrevistado por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977.
+1. [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): un extracto del documental "en parís...", por carlos allende, año 1970.
+2. [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza entrevistado por [joaquín soler serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [a fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [radiotelevisión española](https://es.wikipedia.org/wiki/RTVE), año 1977.
 
 ## thanks - agradecimientos
 
@@ -67,10 +67,10 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 4. to claudia montecinos, for her suggestions and support.
 
 
-* a [rune madsen](https://runemadsen.com/), cuya biblioteca [magicbook](https://github.com/magicbookproject/magicbook) hizo que este proyecto fuera posible.
-* a [youtube-dl](https://rg3.github.io/youtube-dl/) por hacer una genial herramienta de línea de comandos para descargar videos desde la terminal.
-* a [adam garrett-harris](http://www.adamwadeharris.com/) for su  [código](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) para incluir videos de vimeo en github pages.
-* a claudia montecinos, por sus sugerencias y apoyo.
+1. a [rune madsen](https://runemadsen.com/), cuya biblioteca [magicbook](https://github.com/magicbookproject/magicbook) hizo que este proyecto fuera posible.
+2. a [youtube-dl](https://rg3.github.io/youtube-dl/) por hacer una genial herramienta de línea de comandos para descargar videos desde la terminal.
+3. a [adam garrett-harris](http://www.adamwadeharris.com/) for su  [código](http://www.adamwadeharris.com/how-to-easily-embed-youtube-videos-in-jekyll-sites-without-a-plugin/) para incluir videos de vimeo en github pages.
+4. a claudia montecinos, por sus sugerencias y apoyo.
 
 ## license / licencia
 
