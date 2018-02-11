@@ -323,6 +323,142 @@ y comprende que sólo es un Mendigo Resplandeciente.
 
 # El rey  
 
+No eres nada,  
+vives oscuro,  
+en una ciudad perdida.  
+Pero, de pronto, un día,  
+al despertar, eres Rey.  
 
+Arden musicales  
+remotos países  
+avasallados por tu valentía.  
+Poderoso monarca:  
+todo lo que tocas es resplandor,  
+y en tu honor cambian los arcos iris de plumaje.  
+
+Y cuando Ella sonríe,  
+brota agua  
+en la remota infancia  
+adonde se asoma,  
+tu pequeña vida ansiosa,  
+rapaz distante de todo.  
+
+Mas viene el Viento  
+y lo derriba todo:  
+cristal roto es tu monarquía;  
+vives en una ciudad malvada;  
+el tiempo sólo significa  
+que tus zapatos ya no resisten otro invierno.  
+
+Eras Rey  
+pero ya no te sonríe Esa Mujer.  
 
 # La sombra  
+
+Como el centinela  
+que en la agreste torre  
+lucha por no rendir los ojos al invencible sueño,  
+yo resisto al olvido.  
+
+Pero te me vuelves pequeña;  
+la lluvia moja  
+las calles de 1943;  
+la lluvia rompe  
+el cristal en que te guarda  
+mi juventud.  
+
+¡Miseria de los amantes  
+que locamente sueñan  
+eterna la eternidad!  
+El Día es de espuma,  
+niebla es la carne,  
+humo el ayer.  
+
+El país luciente  
+de nuestra juventud hermosa,  
+el tiempo asoló con sus ejércitos potentes.  
+Marcial acampó la herrumbre  
+donde ardió la rosa.  
+
+En la memoria sólo una calle queda  
+por donde caminas lentamente.  
+Ya casi no te miro,  
+y el moribundo sol, atardeciendo,  
+te torna cada día más pequeña.  
+
+Pero pasan los años,  
+y a medida que te vuelves más pequeña,  
+arrojas una sombra más larga.  
+
+
+# Nocturno salvadoreño
+
+La noche era bellísima  
+    Yo te quería.  
+San Salvador brillaba entre las flores.  
+    Yo te quería.  
+La Felicidad nunca tendrá tus ojos azules.  
+    Yo te quería.  
+Dueña de los Crepúsculos.  
+    Yo te quería.  
+Pastora de la Brisa.  
+    Yo te quería.  
+Ruiseñor Malvado.  
+    Yo te quería.  
+Espuma del Silencio.  
+    Yo te quería.  
+Agua bajo los Puentes.  
+    Yo te quería.  
+Olvida los cantos que te escribí.  
+    Yo te quería.  
+Aun ahora, aunque sea tarde,  
+y una paloma ciega  
+vuele para siempre entre nosotros.  
+
+Adiós a las bandadas,  
+adiós al tesoro enterrado en tu infancia,  
+adiós a las Hadas porque las Hadas no existen.  
+
+Ya dije las cosas que dije.  
+Por las que callo ha de crecerme musgo en la voz.  
+Cuando termine de contar esta agonía,  
+otro hombre se levantará de esta mesa.  
+
+Tal vez él no recuerde.  
+¡Pero yo me acuerdo tanto!  
+¡Si supieras cuánto te recuerdo!  
+
+# Los rapaces  
+
+¿Qué hay ahora  
+debajo de las camisas  
+de los muchachos  
+que, antaño,  
+corrían tras los tigres  
+en su infancia veloz?  
+
+¡Rapaces relucientes,  
+que partían sin vacilar,  
+en sus rapidísimos veleres  
+a conquistar países de seda,  
+confines de esmeralda abrasadora!  
+
+¡Días de plata delirante!  
+¡Flechas invencibles!  
+La tempestad no pudo con vosotros.  
+Envejecieron los vientos  
+antes de cansaros.  
+¡Seres puros,  
+vencedores del oso,  
+íntimos amigos de las estrellas de mar!  
+¿Qué son,  
+qué somos hoy?  
+
+Con rencorosa mano escribo esta elegía:  
+porque vi al alba tu hermosura,  
+bebí tu ardiente mediodía,  
+y cerca ya de la nonche,  
+los años se fatigan  
+y no vuelves a mí los ojos.  
+Mi amor anciano se reclina  
+en el hombro poderoso de la muerte.  
