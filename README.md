@@ -51,7 +51,7 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 
 ### about the videos / sobre los videos:
 
-* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.
+* [manuel scorza en parís (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): an extract of the documentary "en parís...", by carlos allende, year 1970.  
 * [manuel scorza escritor peruano entrevista completa](https://www.youtube.com/watch?v=wSAubBLge1s): manuel scorza is interviewed by [joaquín soler serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [a fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [radiotelevisión española](https://en.wikipedia.org/wiki/RTVE), year 1977.
 
 
