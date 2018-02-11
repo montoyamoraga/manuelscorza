@@ -40,8 +40,8 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 ### sobre los textos - about the texts
 
 * el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/).
-* testing
 * los textos en español corresponden a las obras completas de [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
+* los textos 
 
 * the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.  
 * the spanish texts were transcribed from the complete works by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
