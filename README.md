@@ -10,9 +10,8 @@ his books are currently hard to find, out of print or too expensive, so this pro
 
 ### poetry
 
-* las imprecaciones (1955)
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/las-imprecaciones/build/las-imprecaciones.pdf)
-english ~~[markdown](markdown) [pdf](pdf)~~
+* las imprecaciones (1955) -
+spanish  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/las-imprecaciones/build/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * ~~los adioses (1959)~~
 * ~~desengaños del mago (1961)~~
 * ~~poesía amorosa (1963)~~
