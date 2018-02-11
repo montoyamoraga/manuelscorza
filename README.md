@@ -42,13 +42,13 @@ este es un proyecto por [aarón montoya-moraga](http://montoyamoraga.io/). todos
 * every work will be available both in spanish and english, in both pdf and markdown formats.
 * the spanish originals were transcribed from the complete works published by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
 * the english translations were done by [aarón montoya-moraga](http://montoyamoraga.io/).
-* the text was processed using the [magicbook](https://github.com/magicbookproject/magicbook) library.  
+* the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.  
 
 
 * cada obra estará disponible en español y en inglés, en los formatos markdown y pdf.
 * las obras originales en español fueron transcritas a partir de las obras compeltas publicadas por [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
 * las traducciones a inglés fueron realizadas por [aarón montoya-moraga](http://montoyamoraga.io/).
-* el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook).
+* el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/).
 
 ### about the videos - sobre los videos
 
