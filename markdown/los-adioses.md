@@ -394,23 +394,23 @@ arrojas una sombra más larga.
 # Nocturno salvadoreño
 
 La noche era bellísima  
-    Yo te quería.  
+Yo te quería.  
 San Salvador brillaba entre las flores.  
-    Yo te quería.  
+Yo te quería.  
 La Felicidad nunca tendrá tus ojos azules.  
-    Yo te quería.  
+Yo te quería.  
 Dueña de los Crepúsculos.  
-    Yo te quería.  
+Yo te quería.  
 Pastora de la Brisa.  
-    Yo te quería.  
+Yo te quería.  
 Ruiseñor Malvado.  
-    Yo te quería.  
+Yo te quería.  
 Espuma del Silencio.  
-    Yo te quería.  
+Yo te quería.  
 Agua bajo los Puentes.  
-    Yo te quería.  
+Yo te quería.  
 Olvida los cantos que te escribí.  
-    Yo te quería.  
+Yo te quería.  
 Aun ahora, aunque sea tarde,  
 y una paloma ciega  
 vuele para siempre entre nosotros.  
