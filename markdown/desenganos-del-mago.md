@@ -496,6 +496,84 @@ dormido.
 
 ## II
 
+Cuando paso bajo tus balcones, cuando atravieso  
+los patios, jadeando bajo el peso precioso  
+de mi caparazón, tú miras la nieve de remotos países.  
 
+Yo cruzo humildemente el jardín, pero tú  
+no desciendes a mirarme: absorta estás ante el rosal  
+de curvado pico.  
+
+Tal vez es el crepúsculo: flamea tu rostro  
+extrañamente.  
+
+Voy entonces hacia ti: cruzo polvorientos salones,  
+recorro cadavéricos palacios, hasta que miro  
+parpadear tus ojos palúdicos.  
+
+Entonces chillas, saltas de rama en rama y graznas  
+como si tuvieras la pata quebrada.  
 
 ## III
+
+Todavía era la noche cuando el hastío apareció en  
+lo alto de tu torre lívida.  
+
+Tú bajaste los ojos.  
+
+Peces horrendos surcaron el aire perlados de ira.  
+
+Comprendí entonces que ya nunca volverían los días  
+dichosos, las inolvidables tardes idiotas, las felices  
+noches cretinas.  
+
+Entreabrí las lujosas cortinas del invierno arruinado.  
+
+Bajo la luna, jadeantes caimanes de seda nos seguían.  
+
+Tigres ancianos se asomaban a las ventanas  
+para mirarte, por última vez, con ojos furibundos.  
+
+Atravesé la ciudad dormida: roncaban todavía las  
+torres obesas, ahítas de crepúsculo.  
+
+Al alba, prodigiosamente cansado, me detuve entre  
+las actinias: desde entonces duermo: es raro que  
+lleguen hasta aquí los peces, muy raro que los  
+pacíficos radiolarios disputen por los ojos  
+de las púdicas holoturias.  
+
+## VI
+
+Si algún día en tu barbuda torre, en tu país baldado,  
+oyes jadear las hélices del odio, comprenderás  
+que no he mentido.  
+
+Idolatré tu rostro azul, tus ojos viciosos,  
+tu barriga hinchada de hongos mortales.  
+
+No reniego haberte visto entre los cánticos de carbón  
+de los lunáticos, de la peste anunciando el reino  
+deslumbrante.  
+
+Era verano. Te descolgaste de los campanarios  
+—era un escamoso día de verano—, emergiste  
+entre las algas gritando.  
+
+Yo chillé de alegría. Hacía muchos meses que me  
+negabas tus besos: ebrio de gloria arrastré de los  
+cabellos a la pobre tarde.  
+
+En aquella gruta fuimos felices y los paseantes  
+palidecieron cuando Déborah y ho, dulcemente  
+abrazados, cruzamos las islas. Las  
+bandadas llevaban a cuestas nuestros mantos.  
+
+Déborah: tuve que partir.  
+
+Déborah: la tempestad tiene ojos centellantes  
+mi corazón padece en tu isla blanca.  
+
+Déborah: yo sé que me oyes, yo sé que en tu guarida  
+escuchas el silbido amarillo de nuestra inolvidable  
+cobra y luego sollozas y después el olvido.  
