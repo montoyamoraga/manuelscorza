@@ -1,10 +1,10 @@
 {
-  "title" : "My Book",
-  "destination" : "build/:build",
+  "title" : "Los adioses",
+  "destination" : "build/",
   "files" : [
+    "content/cover.html",
     "content/toc.html",
-    "content/first-chapter.md",
-    "content/second-chapter.html"
+    "content/desenganos-del-mago.md"
   ],
   "builds" : [
     {
@@ -13,16 +13,6 @@
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
       }
-    },
-    {
-      "format" : "html",
-      "layout" : "layouts/html.html",
-      "stylesheets" : {
-        "files" : ["stylesheets/html.scss"]
-      },
-      "javascripts" : {
-        "files" : ["javascripts/scripts.js"]
-      }
     }
   ]
-}
+  }
