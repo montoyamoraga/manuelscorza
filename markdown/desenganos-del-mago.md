@@ -1,8 +1,8 @@
 # 1 Valses
 
-> A Rubén Bonifaz Nuño, en memoria de
-> los días que galopamos por los desiertos
-> allá lejos.
+> A Rubén Bonifaz Nuño, en memoria de  
+> los días que galopamos por los desiertos  
+> allá lejos.  
 
 ## Vals verde
 
