@@ -11,11 +11,11 @@
 ### poesía - poetry
 
 * las imprecaciones (1955) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/las-imprecaciones/build/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * los adioses (1959) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/los-adioses.md) [pdf](https://github.com/montoyamoraga/manuelscorza/raw/gh-pages/magicbook/los-adioses/build/los-adioses.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/los-adioses.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/los-adioses.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * desengaños del mago (1961) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/desenganos-del-mago.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/magicbook/desenganos-del-mago/build/desenganos-del-mago.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/desenganos-del-mago.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/los-adioses.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * ~~el vals de los reptiles (1970)~~
 
 ## novelas - novels
