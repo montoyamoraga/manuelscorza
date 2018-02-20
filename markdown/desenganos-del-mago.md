@@ -281,3 +281,221 @@ Alzad los estandartes.
 
 > A Jorge Zalamea,  
 > in memoriam  
+
+## I
+
+Yo vivía en una torre que custodiaban tades  
+de susurrantes collares.  
+
+Yo acechaba a las caravana que, al caer  
+los crepúsculos, entraban en los patios  
+polvorientas de azul.  
+
+Yo jamás dormí.  
+
+Tal vez dormí, tal vez soñé que un ruiseñor sediento  
+secaba los mares.  
+
+Tortugas sospechosas empezaron a seguirme.  
+
+Yo en las tardes miraba flotar en los estanques  
+ciudades de ojos magnéticos.  
+
+Cada noche la marea depositaba en los árboles  
+islas dormidas.  
+
+En bosques de miel esperé a Lucy, la niña de cuernos  
+relucientes.  
+
+Lucy sollozaba por los elefantes enredados en mi  
+barba.  
+Lucy era una gaviota.  
+Yo era un cangrejo, un lirio, un árbol  
+relampagueante.
+
+# II
+
+Déborah: si alguna vez desciendes de los tejados,  
+si alguna vez emerges de los cementerios donde  
+vives, y cruzas (ave o demonio) por la Plaza del Oso,  
+me verás bajo la lluvia esperándote. Porque amé tu  
+calavera de conejo, amé hasta enloquecer tu rostro  
+dañino.  
+
+Déborah y yo cabalgamos sobre un escarabajo  
+de ojos penetratntes y en días de tristeza recorrimos  
+espejos, uniformados de azur.  
+
+Déborah se mataba las pulgas mientras yo recitaba  
+mis grandes cantos.  
+
+Sólo una vez me permitió besarla. Fue en los  
+jardines: la primavera silbaba su tonadilla.  
+Ella movía la cola, azorada.  
+
+Pero tan pronto la besé, sacudió el polen de su falda,  
+aulló la luna y huyó por los desfiladeros.  
+
+Yo felizmente era un topo, dichosamante excavé  
+un túnel.  
+
+Yo estaba solo amancebado con la luna.  
+Bien lo sabes, Déborah, mi araña incomparable.  
+
+¡Oh mi alondra!  
+
+¡Oh mi cítara enlutada!  
+
+## III
+
+Antaño fui un mago melancólico, panteras  
+invulnerables me seguían arropadas en sus sedas.  
+
+Poblé los cielos de bondadosos monstruos.  
+
+Yo tenía veinte años: el año empezaba.  
+
+La abominable tripulación puso proa al paraíso.  
+
+¡Proa al paraíso, charcos de maldad!  
+
+("¡Nunca te traicionaré! ¡No me rendiré mientras  
+chapoteen las sirenas! —mentíale a mi musa".)  
+
+Remonté ríos de erizados dientes.  
+
+Era el tiempo humeante de mi generación.  
+
+Todavía escucho gritar a los unicornios pisados  
+por la multitud.  
+
+El gentío himpla para que abdique.  
+
+Pero yo no cambio de plumaje: me niego a iluminar  
+con mi canto los fétidos establos de la noche.  
+
+No más embustes:  
+que el Poeta se quite el antifaz y muestre su pico  
+afilado.  
+
+Rabiosos ejércitos nos buscan.  
+
+Mas yo vuelo hacia el futuro, yo anido en el pasado.  
+
+Os prometo: una brisa de alondras refrescará  
+el infierno.  
+
+## IV
+
+Y llegó el tiempo del murciélago.  
+
+En los caminos colgaron a los elfos.  
+
+Pintarrajearon a las hadas antes de forzarlas.  
+
+Fracasaron mis magias.  
+
+Vagué por llanuras de trapo.  
+
+Me hinché de moscas como un verano gordo.  
+
+Estuve en Samarcanda, la de cabeza sumergida.  
+
+Sólo insectos poblaban tu urbe, desesperación.  
+¡Oh desolado, sólo tu pueblo ciego te miró envejecer  
+ante las murallas!  
+
+Atravesé salones enjoyados donde el tigre husmeaba:  
+tigres gigantescos entre cuyas zarpas pasan ríos  
+despavoridos.  
+
+Huí de aquellas tribus.  
+
+Llegué a Nínive, la de ojos sangrantes.  
+
+La tarde era un pez de tetas fosfóricas: el río  
+arrastraba imperios de oro danzante:  
+yo mismo era una serpiente.  
+
+Tuve suerte: me amamantó una hembra cuya gordura  
+a los naturales aniquilaba.  
+
+Yo saludo a la que me llevaba muérdago y ratones  
+frescos a mi cubil, yo celebro a la que lamía mis  
+cabelos.  
+
+Oh Nínive vestida con mi dicha.  
+
+Nínive de ojos inaccesibles.  
+
+Nínive de torres soñolientas.  
+
+Nínive donde queda mi corazón ardiendo.  
+
+Así empezaron los años de mis inolvidables  
+desgracias, aquel amor que fue mi ruina.  
+
+## V
+
+Al salir me derribaron los coletazos del viento  
+enloquecido por los piojos.  
+
+Para vivir compuse canciones: la turba me arrojaba  
+oro entre los barrotes.  
+
+Ya era tarde.  
+
+Enfermé.  
+
+Agonicé en los bosques. Mi trono era la luna; mi cetro,  
+el aullido del lobo.  
+
+Peinábame el sol, adulábanme sus hipócritas vasallos.  
+
+Recliné la frente en las catedrales.  
+
+Caían las torres envenenadas.  
+
+Sangraban los obeliscos.  
+
+El mar encaneció, las islas huyeron.  
+
+# 3 Déborah
+
+## I
+
+Bien sé que con tu ojo único —con tu ojo de monstruo  
+acostumbrado al espanto—   invisible y alta, lúbrica  
+y negra, me miras, ferozmente, Déborah.  
+
+Ésta es la hora en que en el pavor de tus antros te  
+vistes de novia y subes jadeando a tu torre enana.  
+
+Ésta es la hora en que, al fondo de los mares, los  
+magos soñolientos entreabren sus verdosas conchas  
+y las fatídicas vírgenes hierven en sus ollas  
+mi pasado.  
+
+¡Mi pasado!  
+
+En ciudades desaparecidas, en desencajados templos,  
+pulso el pestilente laúd cuya música sólo soportan  
+los inmortales: desde las ventanas he visto cojear  
+a los otoños, he visto —con tristeza— a los vientos  
+arrastrar ballenas.  
+
+Yo recuerdo el deslumbrante plumaje de los canallas,  
+yo celebro tu infatigable cola, yo lloro porque  
+antaño, a esta hora, te posabas en mi hombro,  
+papagayo tenebroso.  
+
+Yo sé bien —bien lo sé, amor mío— que ahora mismo  
+te sientas en la profundidad de tu trono y me  
+descubres, bajo el furioso mar, profundamente  
+dormido.  
+
+## II
+
+
+
+## III
