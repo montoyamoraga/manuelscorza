@@ -571,3 +571,81 @@ el día-hongo,
 el saber-ciempiés.  
 
 ## VII
+
+¡Alcahuetes, bendecidnos!  
+
+Bajando con nuestras balsas por los rápidos  
+de la calle cuarenta y cinco,  
+a golpe de hacha,  
+talando los bosques de cielo,  
+la maleza de Saint Germain,  
+grandes galgos de piedra nos seguían;  
+navíos empavesados, cargados de brasa  
+hasta la mesana,  
+manchados de extraños arco iris, canosos  
+de leyendas y explosiones,  
+veleros cargados de tesoros de maldad  
+incalculable.  
+¡Puerto del Turco donde mujeres tapiadas  
+amamantan a pueblos de templarios odiados  
+por la luna, o, simplemente, en el Malecón de los  
+Franceses, donde silba el viento, no la fama!  
+
+La pena nos golpea.  
+
+En su lecho carcomido por meteoritos,  
+difícilmente los vapores de los años respirando,  
+jadeando,  
+resoplando como esos barcos que a los bares  
+penetran perseguidos por la orca,  
+tosiendo,  
+buscando aire,  
+y el hacha del recuerdo cae,  
+hosco el gesto de los gerentes juegan a dados  
+la escasa lana de noviembre,  
+en su trono  
+coronado por relámpagos de trapo, rulos de otro  
+tiempo.  
+
+¡Pasado, piabas!  
+Por escaleras gastadas por coletazos  
+de agonizantes delfines,  
+caminos practicados a fuerza de maldiciones,  
+sudando, gimiendo, exigiendo, sollozando  
+el águila del recuerdo machaca el muro de la ciudad,  
+derriba a topetazos el orgullo.  
+El asco nos envejece.  
+
+Ni los vivos ni los muertos lo soportan.  
+Bajo sombreros de liquen,  
+gentilmente destocándose sus hongos  
+de piedra bruta,  
+bajo el cóncavo cielo de sus losas  
+se sublevan.  
+Y así envueltos en el manto de ceniza  
+de los desastres,  
+en la mano, intacto, el cetro de rocío  
+de los tahúres, las escalinatas del desengaño  
+descendemos.  
+
+¡Proxenetas, amparadnos!  
+
+# El falso peregrino  
+
+> A Rowena  
+
+## I  
+
+Cuando terminó el verano el falso peregrino  
+quebró su huevo,  
+atravesó la floresta de sus crímenes,  
+descendió la escalinata,  
+el parque conducía a un verano, a una  
+vida anterior.  
+Melena al viento enfiló hacia la ciudad.  
+
+## II  
+
+*Mocedades del Cid*  
+
+En un sótano
