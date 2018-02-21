@@ -9,8 +9,11 @@
 ## obras - works
 
 ### poesía - poetry
+
 * rumor en la nostalgia antigua (1948) -
 español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/rumor-en-la-nostalgia-antigua.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/rumor-en-la-nostalgia-antigua.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+* canto a los mineros de bolivia (1952) -
+español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/canto-a-los-mineros-de-bolivia.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/canto-a-los-mineros-de-bolivia.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * las imprecaciones (1955) -
 español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * los adioses (1959) -
