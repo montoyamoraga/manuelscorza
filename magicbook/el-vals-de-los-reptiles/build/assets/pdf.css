@@ -1,3 +1,4 @@
+@charset "UTF-8";
 body {
   font-family: "Helvetica", "Arial", sans-serif;
   color: #333; }
@@ -12,6 +13,21 @@ body {
 h1, h2, h3, h4, h5 {
   font-family: 'Roboto'; }
 
-.container {
-  max-width: 700px;
-  margin: 0 auto; }
+a {
+  text-decoration: none;
+  color: black; }
+
+section[data-type="cover"] {
+  page-break-after: after; }
+
+section[data-type="chapter"] {
+  page-break-after: after; }
+
+section[data-type="sect1"] {
+  page-break-after: always; }
+
+section[data-type="sect2"] {
+  page-break-after: always; }
+
+nav[data-type="toc"] a[href]::after {
+  content: " [Página " target-counter(attr(href), page) "]"; }
