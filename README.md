@@ -23,6 +23,7 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 * réquiem para un gentilhombre: despedida a fernando quíspez asín (1962) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/requiem-para-un-gentilhombre.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/requiem-para-un-gentilhombre.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * cantar de túpac amaru (1966) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/cantar-de-tupac-amaru.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/cantar-de-tupac-amaru.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * el vals de los reptiles (1970) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/el-vals-de-los-reptiles.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/el-vals-de-los-reptiles.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+* lamentando que hans magnus enzensberger no esté en collobrières (1973) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/lamentando-que-hans-magnus.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/lamentando-que-hans-magnus.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 
 ## novelas - novels
 
