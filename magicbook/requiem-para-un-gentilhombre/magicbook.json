@@ -1,0 +1,17 @@
+{
+  "title" : "Los adioses",
+  "destination" : "build/",
+  "files" : [
+    "content/cover.html",
+    "content/requiem-para-un-gentilhombre.md"
+  ],
+  "builds" : [
+    {
+      "format" : "pdf",
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      }
+    }
+  ]
+  }
