@@ -516,4 +516,58 @@ tu pan tenebroso, inteligencia.
 
 El hambre nos obligaba.  
 
-## VI
+## VI  
+
+La piedra comía piedra,  
+el diente modría diente,  
+el agua se enviciaba,  
+era el pan antropófago.  
+
+Nadie nos auxiliaba.  
+
+Y salimos en busca de alimento.  
+
+Y delante de altares de piedra manca,  
+delante de dioses de dentadura  
+de caballo, despeinaban la cabellera del hacha.  
+Lanza en mano  
+volcaban países;  
+en los campamentos de su rabia  
+se repartían razas;  
+con orégano y hierbas de delicia adobaban  
+planetas.  
+
+Y el hambre no cesaba.  
+
+Y en la famelia tramaron devorar a sus hijos.  
+
+No tenían hijos.  
+Conjuraron bodas nefandas.  
+Alto era el precio: asumieron el riesgo.  
+
+Y cambiamos arras con lo intolerable.  
+Y en estepas donde sólo habitaba el cálculo  
+remoto, en arenales donde únicamente pernocta  
+la soltería del desprecio,  
+nos fulminó la lanza del deseo.  
+
+Y a falta de las grupas de canela  
+de sus mujeres legales, penetraron en el lecho  
+ondulante de las saxífragas,  
+hallaron delicia en las bocas de las nepentes.  
+Y a la luz de antorchas de trescientas orejas  
+ofrecieron azahares a las primogénticas del pulpo.  
+Y aceptaron el ciempiés de aquella dicha.  
+Y luego de un milenio de preñez sus mujeres  
+empollaron sus descendencias.  
+
+Y conocieron los metecos de su sangre.  
+
+Habían engendrado mulatos de relámpago  
+y cerdo.  
+Y conocimos el crepúsculo perro,  
+el trueno-rata,  
+el día-hongo,  
+el saber-ciempiés.  
+
+## VII
