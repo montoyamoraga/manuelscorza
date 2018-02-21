@@ -649,3 +649,291 @@ Melena al viento enfiló hacia la ciudad.
 *Mocedades del Cid*  
 
 En un sótano  
+al que jamás se atrevieron a descender  
+las ratas,  
+íntegramente vendado  
+vivió el profeta su juventud vehemente.  
+Nada lo distinguía de sus compañeros de cría.  
+Como ellos,  
+permanecía centurias colgado del rabo  
+de las constelaciones;  
+como ellos,  
+reptaba hacia altillos donde envejecía  
+ferozmente.  
+
+Ora despertaba convertido en médano,  
+ora relámpago, ora tempestad.  
+Pasó su juventud graznando.  
+Se proponía una vida heroica.  
+¿Quién desconoce su iniciación  
+en la santidad?  
+
+### III  
+
+*El niño asombra a los sabios de Sión*  
+
+Es el día de la feria,  
+aniversario de las calumnias, máxima efemérides  
+de la ciudad.  
+La urbe danza.  
+Pestes fosforescentes,  
+plagas radiantes, deseos leporinos, colman  
+las plazas.  
+Razas íntegras perecen pisoteadas.  
+Tal era la alegría cuando el emocionado leproso  
+proclamó su amor por la Oca Adriana.  
+
+*La bizca me persigue,  
+ay amor  
+La tuerta me acaricia,  
+ay amor  
+La muda me desviste.*  
+
+Canta el bellaco.  
+La muchedumbre pía embelesada.  
+El doncel arráncase  
+las vendas que tapian sus cegadores ojos.  
+Rompe a reír entonces el espantapájaros.  
+El Peregrino suplica silencio.  
+El espantahombres vuelve su rostro de piedra.  
+El mancebo comprende que nada aplacará  
+el rencor de la estatua.  
+Níveo de rabia derriba a hachazos  
+al concertista.  
+Sorbe sus sesos, come sus frutos, se deleita  
+con sus cabellos.  
+Ya nada detiene la matanza.  
+Estrangula a la ciudad,  
+pisotea los mares,  
+arrasa la tierra,  
+dirige su pico a los cielos,  
+implanta milenios de matanza.  
+Cuando se detiene  
+un charco de planetas agoniza a sus pies.  
+
+## IV
+
+*Primeros milagros*  
+
+Ni en las galaxias, ni fuera de las galaxias,  
+encontrará refugio.  
+
+Perezosamente se levanta de su silla  
+y solicita su sombrero.  
+Nada delata su turbación.  
+Los hombres beben cerveza, las mujeres  
+lavan sus penes, los niños juegan con pulpos.  
+
+Todo es normal.  
+
+Fingiendo interesarse en la crianza  
+de incestos gana los suburbios;  
+pocos años bastan para cruzar las ramblas,  
+unos decenios para atravesar la plaza.  
+Joven todavía cruza las murallas.  
+Cuando los campanarios convocan a los beduinos,  
+vuela a centurias de distancia.  
+¿Por dónde?  
+Por sus calaveras recogidas en los estrechos  
+se deduce que habitó los mares;  
+por sus esqueletos encontrados por las caravanas  
+se presume que atravesó los desiertos.  
+Las águilas pretenden que amó a una corneja,  
+los peces que reinó sobre los escualos.  
+
+La travesía no fue fácil.  
+
+En el libro de bitácora consta:  
+"Países verdes emergían de sus conchas furiosos,  
+países morados seguíanme ronroneando.  
+Para atravesar aquellas comarcas fingí ser ciego.  
+No era fácil.  
+Los alcahuetes sospechaban de la mansedumbre  
+de mi cítara.  
+Una noche percibí la brisa,  
+mi sombra ya no podía sacar los pies del fango."  
+Por su talla no obtenía posada,  
+pasaban glaciares por sus ojos;  
+reyes cubiertos de enredadera tañían  
+músicas difuntas,  
+reina la oscuridad,  
+se murmua de amores con témpanos,  
+matrimonios con pestes,  
+en los estrechos olas inmensas lo detienen cien  
+años.  
+En el libro de bitácora consta que "para  
+sobrevivir mató millones de marmotas de un  
+arcabuzazo".  
+La palabra "arcabuzazo" demuestra que por lo  
+menos transcurrió otro milenio.  
+
+## V
+
+*Manjares de la amistad*  
+
+En el bosque donde abrí las hileras de mis  
+cuatrocientos ojos, Merlín paseaba sonriente.  
+No distinguí las bandadas  
+que disputaban en sus ojos.  
+Merlín observó los planetas que cruzaban  
+por mi anillo.  
+El hechicero me ofreció uvas, relámpagos,  
+amistad.  
+A la luz de las hogueras dancé, luego dormí.  
+Cuando desperté habían transcurrido otros mil años.  
+¡El despreciable brujo me había traicionado!  
+
+## VI
+
+*La partida*  
+
+Evitando tropezar con los centinelas  
+podridos por la brisa, recorrí la caverna.  
+En la bruma distinguí a los jugadores.  
+Por la estúpida sonrisa que untaba  
+sus quijadas comprendí  
+que jamás me libertarían si perdía  
+la partida.  
+
+Trescientos años tardé en divisar la mesa.  
+Es difícil jugar.  
+Millones de estorninos ocultan las bandas.  
+La vegetación cubre los rostros de los jugadores.  
+Los géiseres son venenosos, los billaristas lentos.  
+Para decidirse tardan decenios.  
+Los adversarios envejecen sin iniciar el juego.  
+Hay que esperar que nazca una nueva generación.  
+
+¿Qué se gana cuando empiezan?  
+
+Las bolas no llegan, ruedan años,  
+a medio camino son gastadas por meteoritos,  
+devoradas por bisontes.  
+
+La selva cubre la sala,  
+el agua inunda las mesas, los jugadores,  
+los años.  
+
+# VII  
+
+*El centelleante pájaro de amor*  
+
+Mitad nieve, mitad arena era la sala.  
+Antes de cruzarla se secaban los mares,  
+los mismos desiertos se sentaban  
+con la cabeza entre las manos.  
+Quise salir: no se podía.  
+¡Había que bailar con Mandrágora!  
+No era fácil hallarla:  
+habitaba en las selvas,  
+vivía bajo lagos perpetuamente cubiertos  
+de hueso.  
+Años tardaban en vestirla,  
+decenios en remolcarla;  
+Mandrágora era caprichosa;  
+si en el camino descubría helechos,  
+no vacilaba en lanzarse a las aguas,  
+sin importarle cuántos países pisoteara.  
+¡Había que soportarla!  
+Y empezó la fiesta.  
+Sacaron a los músicos  
+de sus sarcófagos;  
+el frenesí empapaba  
+la quijada de los palacios,  
+bailando cruzamos salas  
+atravesamos galerías,  
+arcadas de nieve,  
+países de cuero  
+amamantados por la luna.  
+Y la música seguía.  
+¡Qué dichosa era la novia!  
+Me arrancaba los cabellos,  
+sacaba mi rostro a cucharadas.  
+Y el vals no terminaba.  
+Encanecían las ciudades,  
+cojeaban las torres,  
+tosía la noche,  
+el vals no terminaba;  
+la orquesta desfallecía,  
+vacilaban las trompetas,  
+engordaban los saxos,  
+la peste diezmaba los tambores,  
+y la música seguía.  
+
+# VIII  
+
+*El reo pretexta ser príncipe de las golondrinas*  
+
+Parado en una esquina  
+en una intersección de los meses  
+pasó chisporroteando una mujer  
+tres treinta trescientos años no sabría decirlo  
+muchedumbre de cítaras  
+obeliscos viciosos ciegos iracundos pontífices  
+con falo bajo palio  
+seguíanla frenéticos  
+la primavera piaba pero no llegaban las aves  
+los amigos traicionaban  
+no obstante escribí mis palotes calmosamente  
+redacté mis deberes  
+mi madre me enseñó a decir la verdad  
+no me explico  
+embistiéronme los espejos  
+nací a destiempo  
+acepto lo que diga la policía  
+no asistí a los crímenes  
+probablemente dormía  
+frecuentemente me transformo en árbol  
+muchas veces reclino la cabeza  
+al despertar soy una peste  
+nadie atravesó la calle  
+lo juro  
+estatuas sospechosas me seguían  
+no volví el rostro  
+sabía que me convertiría en sal  
+traté de alejar a mis perseguidores  
+vagué años por las avenidas  
+las fuentes se apartaban  
+las flores rechinaban sus dientes  
+volví asustado  
+hallé la ciudad desierta  
+las torres simulaban roncar  
+sentí miedo  
+penetré al café  
+una gran tela de araña cubría la época  
+las mesas los parroquianos la tarde el siglo  
+rodaron pulverizados  
+era evidente  
+vivía en una época desaparecida  
+telefoneé a la policía  
+ignoraba que dormir fuera delito  
+mis trajes mis belfos mis fuselajes estarán  
+manchados pero mi cola es inocente  
+espera el juicio de la eternidad.  
+
+# IX  
+
+*El campo en primavera*  
+
+Pasados unos milenios el reo abre los ojos.  
+Ha envejecido.  
+Por su aspecto  
+semeja una banda de pirámides epilépticas.  
+Para defenderse de los eclipses  
+sólo dispone de su pico.  
+Vaga por las ramblas;  
+en su caminata encuentra jóvenes humeantes,  
+adolescentes derribados por el fuego antiaéreo.  
+En las esquinas estúpidamente profetiza  
+el pasado,  
+solicita tazas llenas de relámpagos.  
+Mil cuatrocientos años después demanda un destino.  
+La súplica es aprobada.  
+Pasa cincuentos mil años en el vientre  
+de su novia,  
+una mañana entre las vendas, oye pájaros.  
+Es el atardecer:  
+quiebra su huevo,  
+atraviesa la floresta de sus crímenes,  
+desciende la escalinata,  
+el parque conduce a un verano, a una vida anterior.  
