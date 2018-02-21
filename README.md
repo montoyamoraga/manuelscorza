@@ -21,7 +21,6 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 * desengaños del mago (1961) -
 español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/desenganos-del-mago.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/desenganos-del-mago.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * réquiem para un gentilhombre: despedida a fernando quíspez asín (1962) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/requiem-para-un-gentilhombre.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/requiem-para-un-gentilhombre.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-
 * el vals de los reptiles (1970) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/el-vals-de-los-reptiles.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/el-vals-de-los-reptiles.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 
 ## novelas - novels
