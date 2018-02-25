@@ -1,5 +1,3 @@
-# manuelscorza.com
-
 ## Acerca - About
 
 [Manuel Scorza](https://es.wikipedia.org/wiki/Manuel_Scorza) fue un poeta, novelista y activista político peruano. Sus libros actualmente son difíciles de encontrar, están descatalogados o son muy caros. Este proyecto pretende hacer que sus obras vuelvan a estar disponibles, tanto en español como traducidas a inglés.
