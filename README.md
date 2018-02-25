@@ -44,11 +44,11 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 
 ### Sobre los textos - About the texts
 
-* el texto fue procesado usando la biblioteca [magicbook](https://github.com/magicbookproject/magicbook) de [rune madsen](https://runemadsen.com/) - the text was processed using [rune madsen](https://runemadsen.com/)'s [magicbook](https://github.com/magicbookproject/magicbook) library.
-* los textos en español corresponden a las obras completas de [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/) - the spanish texts were transcribed from the complete works by [siglo veintiuno editores](http://www.sigloxxieditores.com.mx/).
-* traducción al inglés por [aarón montoya-moraga](http://montoyamoraga.io/). - english translations by [aarón montoya-moraga](http://montoyamoraga.io/).
+* El texto fue procesado usando la biblioteca [Magicbook](https://github.com/magicbookproject/magicbook) de [Rune Madsen](https://runemadsen.com/) - The text was processed using [Rune Madsen](https://runemadsen.com/)'s [Magicbook](https://github.com/magicbookproject/magicbook) library.
+* Los textos en español corresponden a las obras completas de [Siglo Veintiuno Editores](http://www.sigloxxieditores.com.mx/) - The Spanish texts were transcribed from the complete works by [Siglo Veintiuno Editores](http://www.sigloxxieditores.com.mx/).
+* Traducción al inglés por [Aarón Montoya-Moraga](http://montoyamoraga.io/). - English translations by [Aarón Montoya-Moraga](http://montoyamoraga.io/).
 
-## agradecimientos - thanks
+## Agradecimientos - Thanks
 
 * Ana María Moraga, por sus consejos y críticas. - Ana María Moraga, for her advise and critique.
 * Claudia Montecinos, por sus sugerencias y apoyo. - Claudia Montecinos, for her suggestions and support.
