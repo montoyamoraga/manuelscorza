@@ -38,3 +38,78 @@ El viejo Fortunato se estremeció: el cielo tenía el mismo color de cuervo de l
 Fortunato trotaba sobre la interminable pampa de Junín. En su rostro azuleaba un color que no era fatiga. Hacía dos horas que avanzaba con la boca abierta. Los pies pulverizados reducían el trote, caminaban y se volvían hacia la carretera. En cualquier instante, acaso ahora, la neblina pariría los pesados camiones, los rostros de cuero que pisotearían Rancas. ¿Quién llegaría primero? ¿El convoy que circundaba la lentísima curva o Fortunato, que sudaba sobre los roquedales? Encollarada por millares de animales moribundos, Rancas cabecearía de sopor. ¿Llegaría a tiempo? Y aun si avisaba, ¿cómo se defenderían? ¿Con garrotes? ¿Con hondas? Los otros advertirían justo antes de disparar. Trotaba con la boca abierta, tragándose el cielo apellidado de buitres. Malos presentimientos galopaban tras él. Borrosamente adivinó la pampa. Cada roca, cada charco, cada mata, monótonas, idénticas para los extraños, eran inolvidables para él. Corría, corría, corría. En esa estepa maldecida por los forasteros, odiada por los choferes, en ese páramo donde sólo consuelan dos o tres horas de sol, él, Fortunato, había nacido, crecido, trabajado, maravillado, conquistado y amado. ¿También moriría? sus ojos abarcaron el continente de ovejas muertas: docenas, cientos, miles de esqueletos limpiados por los buitres. Recordó los nombres de sus animales: *Algodón, Plumita, Flor del Campo, Tuna, Banderita, Negro, Coqueta, Trébol, Ocioso, Bribón* y *Fortunato*, todos confundidos en el hedor de la maldición. "*Tuna, tuna, tunita*." Se rindió sobre el pasto puntiagudo. todavía no aparecían los camiones. Sus ojos se lastimaron con la tapa de hierro de un cielo negado al clamor. ¿A quién suplicar? El Padre Chasán rechazaba los cien soles que normalmente recibía para impetrar al Divino. Rehusaba la respetuosa insistencia del Personero Rivera. No querái engañarlos. El Padre Chasán miraba al Crucificado y agachaba la cabeza. Corría, corría, corría. El Personero Rivera, Abdón Medrano y Fortunato bajaron a Huariaca para suplicar al padrecito que interrumpiera su novena. Suplicaron y suplicaron. El padre vino a la cochambrosa iglesia repleta de pecadores. Rancas aún soñaba que el agua bendita podía salvarla. ¿Quién llegaría primero? ¿Guillermo, el Carnicero, o Fortunato, el Lento? Alguien comunicaría a los animales que el Cerco clausuraba el mundo. Los hombres ya lo sabían. Hacía semanas que el Cerco había nacido en los pajonales de Rancas. Corría temeroso de ser alcanzado por ese gusano que sobre los humanos poseía una ventaja: no comía, no dormía, no se cansaba. Los ranqueños, los yanacochanos, los villapasqueños, los yarusyacanos, supieron, antes que los búhos o las truchas, que el cielo se desfondaría. Pero no podían huir. El Cerco clausuraba los caminos. Sólo podían rezar en las plazas, aterrados. Ya era tarde. Aunque el alambrado no prohibiera los pasos, ¿adónde huirían? Los habitantes de las tierras bajas podían descender a las selvas o remontar las cordilleras. Ellos vivían en el tejado del mundo. Sobre sus sombreros colgaba un cielo hosco a la súplica. Ya no existía escape, ni perdón, ni regreso.
 
 # 3 Sobre un conciliábulo del que a su debido tiempo hubieran querido enterarse los señores guardias civiles
+
+—Ya están todos —dijo el Abigeo.  
+—¿Cuántos han venido? —Chacón, el Nictálope, preguntaba por preguntar: sus ojos, capaces de descubrir la huella de una lagartija en la noche, distinguían entre las peñas de Quencash los rostros que aguardaban sobre las rocas, sobre el pasto, bajo el hule de la noche.  
+—Siete varones y nueve hembras, Héctor.  
+—Las mujeres somos más machas —se jactó Sulpicia desde su andrajosa pollera.  
+—¿Ya se apostaron los espías? —receló el Ladrón de Caballos.  
+—Comunícanos tu pensamiento, Héctor —dijo el de la cicatriz.  
+—¿Tienen trago?  
+El Ladrón de Caballos destapó la coronta de maíz y alcanzó la botella. Héctor Chacón, el Nictálope, recorrió la fila de rostros tensos y expulsó el humo de cigarro. Hacía diez años que soñaba con esos cigarrillos, esas voces, esos odios.  
+—En esta provincia —casi no se percibía su resentimiento— hay alguien que nos tiene totalmente pisados. Yo he visto a los delincuentes suplicar en las cárceles a Jesucristo Coronado: los asesinos y los hijos de puta se arrodillan y rezan llorando la oración del Justo Juez. El señor Jesucristo se apiada y los perdona, pero en esta tierra hay un juez que nose aplaca con palabras ni oraciones. Es más poderoso que Dios.  
+—¡Jesús, María! —se santiguó Sulpicia.  
+—Mientras él viva, nadie sacará la cabeza del estiércol. En vano reclamamos nuestras tierras. Por gusto, el Personero presenta recursos. Las autoridades sólo son chulillos de los grandes.  
+—Los Personeros —dijo el Ladrón de Caballos— son compadres del Juez. Bustillos y Valle se turnan: uno es personero un año mientras el otro descanasa; al año siguiente, cambian: el otro es personero.  
+—Su fuerza es ser compadres —dijo Sulpicia.  
+—¿Y quién les para el macho?  
+—Cuando yo entré en la cárcel —prosiguió Chacón— nuestras tierras eran el doble. En cinco años Huarautambo se las ha tragado.  
+—El Personero ha presentado una queja —informó el Abigeo—. El trece se realizará un comparendo.  
+—Ya lo verán —rió Chacón—. El doctor Montenegro se limpiará el culo con las citaciones. Para los opositores ese hombre tiene dos cárceles: una en su hacienda y otra en la provincia.  
+—No hay solución para nuestros atrasos —se amargó el Abigeo.  
+—¿Qué remedio propones, Héctor?  
+—El comparendo será el trece de diciembre. Ese día lo mataré.  
+Chillaron las lechuzas.  
+—El día que ese hombre muera —tembló el Abigeo después de un envejecido silencio— al policía matará y quemará Yanacocha.  
+—Depende.  
+—Hay que disimular.  
+—¿En qué forma?  
+—Se puede fingir una riña; si mueren dos o tres de los nuestros, la justicia dirá que fue una disputa.  
+—Si ese hombre muere —se endureció Sulpicia—, nadie dirá "Yanacocha es mía".  
+El Abigeo se rascó la cabeza.  
+—¿Qué pasará con los asesinos?  
+—Saldrán de la cárcel en cinco años.  
+—Sabiendo aprovechar —dijo Chacón— el hombre encarcelado sale más hombre. Yo conozco muchos que aprendieron a leer en la cárcel.  
+—Yo aprendí en la cárcel —dijo modestamente el Ladrón de Caballos.  
+Sulpicia pensó en su marido, muerto en el calabozo de Yanahuanca; se levantó y besó rabiosamente la mano de Héctor Chacón.  
+—¡Bendita sea tu mano, Héctor! Yo estoy dispuesta a estar en la cárcel diez años con tal que tú no caigas.  
+—¿Quiénes morirán? —preguntó el Ladrón de Caballos chupándose las muelas.  
+Sólo los ojos del Nictálope, capaces de distinguir la parda presencia de las vizcachas, percibieron las mandíbulas apretadas del Abigeo.  
+—El Niño Remigio —dijo el Abigeo— ya no tiene remedio. Cada vez está peor. No pasa día sin que caiga con la boca llena de espuma. Yo lo he visto llorar cuando resucita de sus ataques. Se tira sobre la hierba y arranca las hojas. "¿Para qué vivo? ¿Para qué existo? ¿Por qué no me recogerá el Divino?" Así se queja.  
+—¿Qué opinan?  
+—Sería bueno que descansara el pobrecito.  
+—Si muere —dijo el Ladrón de Caballos—, le regalaremos buenas funeraciones.  
+—Le compraremos un buen ataúd —insistió el Abigeo— y todos los años, el día de los Difuntos, le llevaremos flores.  
+—Al voto.  
+En la oscuridad, el Nictálope miró todos los brazos alzados.  
+—¿Quiénes serán los otros? —preguntó el de la cicatriz.  
+El Abigeo escupió verde.  
+—Isaías Roque traiciona al pueblo. Por él, Montenegro sabe todo lo que pensamos. Él le lleva novedades y cuentos. Opino que muera.  
+—Roque se jacta de ser ahijado del juez. Es justo que muera con su padrino —dijo Sulpicia.  
+—¿Qué opinan?  
+El Ladrón de Caballos logró sacarse, por fin, la hilacha de coca.  
+—Al voto —dijo el Nictálope.  
+Todos levantaron la mano.  
+—El que también debe morir —dijo el Ladrón de Caballos— es Tomás Sacramento. Él lleva la relación de las personas que murmuran contra Montenegro. Por culpa de ese hombre mucha gente padece castigos.  
+—¿Qué opinas, Héctor?  
+—Una vez los peones de Huarautambo voltearon un sembrío de la comunidad. Por orden del Personero, yo me quejé al Puesto. El sargento Cabrera me dijo: "Mándame caballos y prepárame una buena pachamanca. Mañana subiré a inspeccionar." Yo preparé todo, pero cometí la bestialidad de encargarle a Sacramento que llevase los caballos. Yo sé que Sacramento habló con el doctor y que Montenegro le dijo: "Hazte el tonto", y que él llevó los caballos a pastar. No cumplió. Cuando el Personero bajó a averiguar, lo metieron preso.  
+—Estamos expuestos. Nos entregará en cualquier momento.  
+—Hay que acabar con la hierba mala.  
+Todos levantaron la mano.  
+—Antes deben ser expulsados de la comunidad —dijo el Abigeo—. El hombre que no coopera, no debe existir. ¡Que mueran como perros sin dueño!  
+—¡No! —dijo Chacón—. Si los expulsamos, la justicia sospechará.  
+—¿Y quién matará al Juez?  
+—Yo me ofrezco. De frente o por la espalda, como ustedes gusten. Y si se ofrece, también mataré a los otros.  
+—No eres el único varón de esta provincia, Héctor —se resintió el Abigeo.  
+—Al juez lo acabaremos a pedradas —se prometió Sulpicia.  
+—No —dijo Chacón—, sería un crimen demasiado pesado.  
+—¿Y cuánta plata se necesitaría para los abogados?  
+—Plata propiamente no necesitamos.  
+—¿Y nuestras familias?  
+—La comunidad sostendrá a las familias.  
+—La comunidad —asintió el Abigeo— trabajará los terrenos de los acusados y mandará víveres a los presos.  
+—Los presos se sostendrán a sí mismos: tejerán canastas o sillas, fabricarán peines.  
+—Yo estoy listo —pronunció gravemente el Abigeo.  
+—Un año en la cárcel —dijo Chacón— es una fumada; cinco años son cinco fumadas.  
+
+# 4 Donde el desocupado lector recorrerá el insignificante pueblo de Rancas
