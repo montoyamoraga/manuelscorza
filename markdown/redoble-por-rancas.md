@@ -150,3 +150,138 @@ No debimos reírnos. En lugar de llenarnos la boca con tontas palabras, debimos 
 Fortunato se detuvo y se desmadejó sobre el pasto. Su corazón saltaba como un sapo. Levantó medio cuerpo y conjeturó la curva brumosa: en cualquier momento, quizás mientras jadeaba, aparecían los camiones, pero sus ojos no distinguieron ningún reflejo; enrollado como un gato, el camino a Rancas dormitaba.  
 
 ## 7 De la cantidad de munición requerida para cortarle el resuello a un humano  
+
+Un invierno prematuro chapoteó en los caminos. Las huellas se extraviaban en el fango. Diciembre tronaba por las cordilleras. Metida en sus chozas, la gente miraba a los caballos hundirse en sus herraduras. Un miércoles lluvioso, un guardia civil emergió por el camino de Yanahuanca. La cara adusta del guardia Paz enfiló a la casa del Personero Agapito Robles. La gente se arremolinó. Se equivocaron: el guardia no traía ninguna orden de captura. El Subprefecto Valerio confirmaba que el comparendo entre la hacienda Huarautambo y la Comunidad de Yanacocha se realizaría el trece de diciembre. El guardia Paz agradeció la copa de aguardiente y se extinguió en la neblina.  
+—Es muy raro —dijo Melecio de la Vega—, muy raro que la Autoridad nos regale tantas atenciones.  
+—No seas desconfiado —dijo el Personero—. El doctor estará cansado de tantas notificaciones. Quizá quiera arreglar —se rascó la pantorrilla y se rió—. Quizá no haya necesidad de violencia.  
+—Hay que preparar el recibimiento —dijo el Ladrón de Caballos.  
+—Un buen recibimiento —aconsejó el Abigeo—. No nos vaya a suceder lo mismo que les pasó a los chinchinos.  
+El Ladrón de Caballos se carcajeó. Las autoridades se santiguaron. Hacía meses que los chinchinos, acogotados por los avances de la Hacienda, habían solicitado un comparendo. Aburridas por metros de solicitudes, las autoridades acordaron el viaje del Inspector Garza. Chinche, todavía novato en los recovecos de la justicia, se alborotó. El Personero Amador Cayetano mandó alquilar tambores y cornetas a cinco leguas y ordenó erigir un arco triunfal. Él mismo descendió a la provincia para comprar una camisa nueva y mandar preparar un discurso al tinterillo Lorenzana. El célebre pico de oro redactó un ditirambo digno del Prefecto. La víspera, Cayetano viajó a Tambopampa con los mejores caballos de la comunidad. Tambopampa es un puñado de chozas tiradas en el comienzo del camino a Chinche. Cayetano calculó todo menos el invierno. Entre Cerro y Tambopampa se gastan, normalmente, cinco horas; pero las lluvias se ensañaron con la carretera. El Inspector, anunciado para las once de la mañana, se presentó a las ocho de la noche. Sucio de barro y de fatiga, con el rostro avinagrado, descendió del camión blanqueado por la tempestad.  
+—¿Cómo está su Excelencia? —preguntó Cayetano. El Inspector recorrió con los ojos las chozas barridas por la granizada.  
+—Los caballos de Su Excelencia están preparados.  
+—¿Quieres matarme, carajo? —gritó el Inspector—. ¿No ves que no se distingue la punta de la nariz? Es imposible viajar. Quedémonos aquí. Sírvanme algo de comer y luego descansaré-  
+Cayetano se confundió.  
+—¿No hay nada que comer?  
+—En Chinche tenemos pachamanca, Excelencia.  
+—Déjate de joderme con el título de Excelencia.  
+—Está bien, Excelencia.  
+Tardaron una hora en encender fuego. En una de las chozas, Cayetano encontró un frasco de esencia de café. El Inspector esperaba más muerto que vivo, sin nada en el estómago desde las siete de la mañana; Cayetano apareció por fin con un jarro. Galarza sopló y sorbió el café hirviente; le cambió la cara y escupió una mueca.  
+—¿Qué menjurje es éste?  
+—Café, Excelencia.  
+—¡Muéstrame el café!  
+Le trajeron la botella barrosa. El Inspector la destapó y apartó la nariz, asqueado.  
+—¿De dónde, carajo, sacaron este café?  
+—Es esencia pura, comprada en Huancayo, Excelencia.  
+—¿Cuándo la compraste, animal?  
+—Hace un año, Excelencia.  
+El Inspector levantó los brazos.  
+—Dios mío, ¿cuándo progresarán estos salvajes?, ¿cuándo se civilizarán? ¿Por lo menos me darán una cama?  
+Le ofrecieron un pellejo de carnero. El Inspector Galarza se desfondó en un sueño desesperado. Las autoridades de Chinche salieron recriminándose. ¡El rabioso Inspector fallaría en contra! Sobre la behetría de los puñetazos se impuso la autoridad del Personero. "Sea como sea —dijo Cayetano—, hay que ofrecerle un buen desayuno." Era un santo propósito. La tempestad tapiaba los caminos; salieron a espulgar estancias. No encontraron ni una miga de pan. A media noche decidieron batir la zona. La tempestad no se aplacaba. Fermín Espinoza —un ex sargento, colono expulsado de Chinche que vivía refugiado en una cueva— encontró una gallina. La decomisó. Casi amanecía.  
+—¿Sabe usted cocinar? —dijo Cayetano.  
+—En los cuarteles se hace de todo.  
+—Prepare un buen estofado.  
+Cuando el hambre despertó al Inspector, un sol glorioso perdonaba todas las deudas y un estofado humeaba sobre un cajón de madera decentemente cubierto por una amarillenta página de *El Comercio*.  
+—El desayuno, señor Inspector —anunció Cayetano.  
+El Inspector Galarza midió la inmensidad del esfuerzo y sonrió. Casi se abalanzó sobre el estofado, pero no terminaba de tragar la cucharada cuando se le sublevó la cara.  
+—¿Qué monstruosidad es ésta?  
+—Gallina, Excelencia —informó Cayetano—. Yo mismo la desplumé.  
+—Esto es mierda —se ahogó el Inspector.  
+Cayetano olió el estofado y se torció de risa: era mierda.  
+—Oye Espinoza. ¿Tapaste la olla?  
+—¿Qué olla?  
+—Grandísimo hijo de puta —tronó Cayetano—. ¿No sabes que cuando se cocina con bosta hay que tapar la olla para que no se le pegue a la comida el olor del estiércol?  
+La tragedia de los chinchinos escalofrió a los yanacochanos.  
+—Hay que prepararse —se inquietó Agapito Robles, temeroso.  
+—Sería bueno contratar una banda de músicos —aconsejó el Abigeo.  
+—Costaría trescientos soles.  
+—Los vale.  
+El doce de diciembre, por la mañana, el Personero y sesenta montados descendieron a Yanahuanca. La Plaza de Armas no rememoraba una cabalgata semejante. El asombro expulsó a los guardias de la siesta. El sargento Cabrera se ajustó la cartuchera y recorrió la plaza con el entrecejo fruncido. No se atrevió a más. Héctor Chacón, el Ladrón de Caballos y el Abigeo entraron a la plaza adelantados por un rumor de avispas. Los hombres esperaron, fumando, conversando o bebiendo. La neblina autorizó un rápido crepúsculo. A las siete de la noche dos faros titilaron en las altas curvas de Chipipata.  
+—Ahí están —gritó el Personero.  
+Treinta minutos después un camión salpicado de fango entró en la plaza. La banda de música escandalizaba con los primeros sones de la "Marcha de Banderas". El Inspector se quitó el sombrero.  
+—Las autoridades de Yanacocha —dijo el Personero, digno— le dan la bienvenida, ilustrísimo Inspector.  
+El Abigeo y el Ladrón de Caballos se afanaron con el equipaje. La banda de música y la gritería acompañaron al Inspector hasta el Hotel Mundial. El Inspector avanzó, mareado por la altura y los aplausos.  
+—Estoy muy cansado —dijo acercándose a la puerta.  
+—Por ahí no, señor Inspector —dijo el Personero.  
+—¿Cómo?  
+—Hay que subir por el patio —informó el Abigeo.  
+El Hotel Mundial era uno de los beneficiados por los talentos de Simeón, el Olvidadizo, único representante de la arquitectura en la provincia. Simeón nunca recordaba ni las ofensas ni los planos. Siempre extraviaba una puerta, una ventana, un pasadizo. Gracias a su genio, muchos yanahuanquinos dormían en la sala y comían en el granero. Enn el Hotel Mundial se le traspapeló la escalera. Entre demoler el edificio y colocar una escalera de eucalipto, los propietarios escogieron el alpinismo, solución que poseía una ventaja: descartaba de la clientela a los borrachos.  
+—Voy a descansar —se resignó el Inspector.  
+—¿A qué hora desea usted los caballos?  
+—A las nueve.  
+El Personero Agapito Robles se inclinó.  
+Explosionó, de nuevo, la "Marcha de Banderas". El Inspector trepó entre ovaciones.  
+—¡Mañana, todos en la plaza! —gritó el Personero.  
+—Los llamará la campanada —añadió Felicio de la Vega.  
+Los jinetes se dispersaron en la oscuridad. Se adelgazó el trote de los caballos. Una hora después chapoteaban en el barro de Yanacocha.  
+—Nos veremos mañana —bostezó el Personero.  
+—Quédate —ordenó Chacón.  
+—¿Qué pasa?  
+El Nictálope levantó un costalillo.  
+—¿Qué es eso?  
+—Cuarenta y cinco tiros.  
+El Personero se retractó en su montura.  
+—Héctor —carraspeó—, he soñado feo.  
+El Nictálope se entretenía con una araña que remontaba el tejado de Minaya.  
+—Soñé que la pampa hormigueaba de guardias.  
+El Nictálope se tronó las articulaciones de los dedos.  
+—Héctor, quizás el doctor ceda.  
+—El Juez cederá el día que vuelen los chanchos.  
+—Las autoridades —tosió el Personero— no estamos de acuerdo en esa muerte. Tú no puedes comprometer al pueblo, Héctor.  
+—¿Eso también lo soñaste?  
+El Personero se humilló.  
+—Nadie puede proceder sin autorización.  
+El revólver ardió en la mano del Nictálope.  
+—¿Para qué me he preparado?  
+—¿Qué has perdido con prepararte?  
+—Está bien —gritó el Nictálope y metió las espuelas a su chusco. El caballo se disparó.  
+—¡Héctor, Héctor!  
+El Nictálope ya galopaba por la pampa enorme. Sólo al alba se apiadó del caballo y regresó. *Tigre*, su perro, salió a frotarse contra sus piernas, moviendo la cola.  
+—Por aquí, papá, por aquí —lo guió la voz de su hijo.  
+"Cree que estoy borracho", pensó. Por la puerta asomó la cabeza de un niño sucio de sueño.  
+—Prende una vela, Fidel.  
+El niño besó la mano y encendió el resto de una cera. La vacilante luz salpicó las paredes sin revocar. En la habitación se amontonaban sacos de papa, alforjas, monturas, aperos y cajones; acompasado, roncaba su hija. Bruscamente, un cansancio antiguo le agarrotó las piernas. Se desabrochó el  cinturón y depositó el revólver y el costalillo sobre la mesa. Las balas se desparramaron.  
+Los ojos de Fidel fulguraron sobre el arma.  
+"Mañana moriré —pensó el Nictálope—. La Guardia Civil me acribillará, me amarrarán a un caballo y me arrastrarán. Nadie reconocerá mi cara. Ni mi mujer, ni Juana, ni Fidel, ni Hipólito me reconocerán."  
+—Voy a matar a Montenegro —dijo el Nictálope—. Mañana voy a acabar con ese abusivo. Para tener pastos, ése debe terminar.  
+El niño alisó el revólver como el lomo de un gato.  
+—¿Tantas balas se necesitan para matar a un hombre, papá?  
+—Una sola basta.  
+—¿Los guardias te dejarán vivo?  
+—Tengo muchas balas.  
+—¿Te dispararán?  
+—No pueden acertarle a un venado, menos me acertarán a mí. Guarda eso, Fidel. Es tarde, acuéstate.  
+Los ojos del niño quemaban.  
+—Acaba con los hacendados, papá. Yo te ayudaré. Para que no sospechen nada, yo llevaré mañana las armas bajo mi poncho.  
+Chacón se metió en un sueño sin pensamientos. Lo despertaron las voces de Fidel y de Juana.  
+—Apúrate, hermanita —gritaba el niño en la cocina—, hoy es el gran día. Compra pan y queso.  
+—Tú límpiate los mocos y cállate.  
+—¿No sabes lo que haremos hoy? —Y levantó el revólver—. Hoy mataremos a Montenegro.  
+—¡Suelta eso!  
+—No, hermanita, las mujeres no tocan esas cosas. Esto no es broma. Cállate y prepara un buen desayuno para Héctor.  
+Tendido sobre el pellejo de carnero, el Nictálope contaba las campanadas. Se levantó y se vistió: salió al patio y se mojó la cabeza limpia de rencor. Sobre la mesa, cubierta por un hule salpicado de flores y frutas descascaradas, esperaban un jarro de leche de cabra, dos panes y un quesillo. Fidel se acercó y le besó la mano.  
+—¡Flojo —lo regañó—, recién te levantas!  
+—Estoy de pie desde las cuatro —protestó el niño—. He preparado tu desayuno. ¡Héctor, toma tranquilo tu leche! Yo voy al coso a preparte un buen caballo.  
+Salió con una soga en la mano. El Nictálope, sereno, masticó el pan empapado en leche. Juana se acercó llorosa.  
+—¿Es cierto que matarás a Montenegro, papá?  
+—¿Quién te dijo?  
+—Fidel tiene una pistola y una cintura con balas.  
+—Para que los animales tengan pasto debo cometer ese crimen —dijo Chacón suavemente.  
+—Nuestra situación se agravará, papá. La policia nos asustará.  
+Las lágrimas surcaban los ojos pequeños.  
+"Sea como sea, mataré a Montenegro", pensó y en ese relámpago perdonó a los sentenciados. Ni el Niño Remigio, ni Roque, ni Sacramento morirán. Uno solo era el culpable. "Mataré su cara, mataré su cuerpo, mataré sus manos, mataaré su sombra, mataré su voz."  
+En la huerta creció un mocetón de espaldas poderosas.  
+—¿Qué pasa, hijo?  
+Rigoberto se quitó el sombrero y le besó la mano.  
+—Harta gente se reúne en la plaza. Hay mucha bulla, papá.  
+—Hoy es el comparendo.  
+—La gente dice que usted matará a Montenegro. En la calle hay laberinto.  
+—¿Cómo?  
+—No debiste avisar a nadie, Héctor.  
+—Pocos éramos, Rigoberto.  
+—¿Pocos? Todos saben que usted sesionó en Quencash. El pueblo está pálido, papá.  
+—Déjalos que muevan la lengua.  
+—¿Usted procederá, papá?  
+—De todos modos acabaré.  
+Rigoberto trataba de aprender, desesperadamente, la cara de su padre.  
+
+## 8 Sobre los misteriosos trabajadores y sus aún más raras ocupaciones  
