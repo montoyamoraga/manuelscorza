@@ -359,3 +359,71 @@ Volví a la cantina. La garganta me exigía un huaracazo. La nevada se debilitab
 El quinto día, el Cerco derrotó a los pájaros.  
 
 ## 11 Sobre los amigos y amigotes que Héctor Chacón, el negado, encontró a su salida de la carcel de Huánuco  
+
+Si por torpeza alguno de los agentes viajeros que mensualmente descienden a Yanahuanca para ofrecer esos muestrarios de telas floreadas cuyos esplendores provocan tantos dolores de cabeza a los hombres que cometen la valentía de dormir con dos mujeres, pregunta, como quien no quiere la cosa, por Héctor Chacón, los comensales del Hotel Mundial se encarnizan en el grasoso estofado; y si los representantes de las casas mayoristas, aparentemente empeñados en rechazar clientes, insisten, los pensionistas pierden el apetito y se alejan; y si llevado por su funesta curiosidad este hipotético explorador sube al caserío de Yanacocha, colgado sobre una cornisa de la cordillera, mil metros más arriba, el preguntón tropezará con un muro de negativas: nadie conoce a ese varón de rostro tallado por miradas de ojos diferentes; y si visita las casas donde, en otros tiempos, Héctor Chacón comió, se jaraneó y se emborrachó, repetirán: no conocemos a ese hombre que, defendido por una camisa que era una burla al invierno, un mediodía fangoso descendió hacia la pila de la Plaza de Armas de Yanacocha; y si el empecinado viajero encamina sus pasos hacia las casas de los propios amigos de Héctor Chacón, por ejemplo a las de Agapito Robles o de Isaac Carbajal, los dueños lo barrerán con ojos desconfiados y le dirán: "Un momento." Poco después el preguntón entenderá la inutilidad de la espera: los inquiridos han saltado la cerca de sus patios y se han extraviado en los eucaliptos; y si, para rematar una metáfora infortunnada, el viajero toca la misma puerta de la mujer de Héctor Chacón, ella también responderá: "No lo conozco." En docennas de leguas sólo una persona admitirá conocerlo.  
+—Yo sé dónde está Héctor —dice el Niño Remigio, el de la sonrisa malograda.  
+—¿Dónde está?  
+El Niño Remigio lanza el chorro de su carcajada:  
+—¡Se convirtió en luciérnaga!  
+Un mediodía lluvioso, sin embargo, Héctor Chacón, el Negado, atravesó lentamente la plaza rumbo a la polvorienta pila donde un despintado angelito no alcanza a disparar su flecha porque algún hideputa le quebró uno de los brazos. Vestía las mismas ropas con las que había dejado la cárcel de Huánuco. Cinco años antes había salido por esa misma esquina con las manos amarradas a unan reata halada por los caballos de los guardias civiles. Encendió un cigarrillo. Su mirada convalecía en las cosas olvidadas. Exhaló la segunda bocanada. Un hombre vestido con una violenta camisa a cuadros, delgado, de rostro cetrino, de ojos achinados, de cabellos rebeldes, lo palpó con los ojos.  
+—¡Don Héctor! —gritó.  
+Era Agapito Robles, el nuevo Personero de la comunidad. Los ojos de Héctor Chacón, capaces de encontrar una araña en la noche, lo desconocieron.  
+—Soy Agapito Robles, don Héctor —dijo el Personero mientras cruzaba la algarabía de una noche de niños de caras disimuladas bajo la costra de mocos petrificados.  
+Chacón sonrió: no flaqueaba su bárbara memoria. El día en que, amarrado a la doble soga de la Guardia Civil y la vergüenza pública, atravesó por última vez esa plaza, Agapito era un muchacho que jugaba a las bolas.  
+—¡Dichosos los ojos que lo miran, don Héctor! —se emocionó la voz.  
+—Gracias, don Agapito.  
+Otros dos hombres, un gigante de casi dos metros y un achaparrado de mandíbulas poderosas y espaldas cuadradas, se acercaron gritando:  
+—¡Héctor, Héctor!  
+El Nictálope se golpeó los muslos de alegría.  
+—¡Hermanón, hermanón!  
+—Conocía su llegada —dijo el gigante con una sonrisa que no mostró ningún diente por la sencilla razón de que no los tenía.  
+—¿Cómo lo supo, compadre?  
+—Por los animales —sonrió el desdentado.  
+Los animales le adelantaban noticias. Su padre, un jorobado hecho a los tratos con gentes complicadas con la Otra Orilla, lo abandonó a los cinco años dejándole por única herenncia el lenguaje de los animales. A los siete años conversaba con los potrillos; a los ocho, ningún animal se le resistía; y hubo su madre de tallarlo a latigazos para evitar que pasara su infancia conversando con los únicos maestros que les enseñaron cosas serias. Cada tres meses la necesidad, que es más fea que pegarle al padre, lo obligaba a remontar las cordilleras. No robaba: convencía a los caballos. Provisto de billetes relucientes, fingía interesarse en la compra de caballos y, aprovechando el descuido de los caporales, impotentes ante tales maestrías, se ganaba la confianza de los equinos, nombrándoles lugares donde crecían pastos mayores que la alzada de los toros y galopaban yeguas de traseros colosales: los animales lo escuchaban con ojos húmedos. El Ladrón de Caballos los citaba en los despoblados y ellos, más fieles que mujeres, acudían a las citas, y se largaban juntos por los recovecos de anfractuosísimas cordilleras. Semanas después aparecía en Canta, o en La Unión o en Yauyos, ofreciendo caballos. Sólo los vendía después de tomar en los corrales referencias de los compradores por boca de sus propios equinos.  
+El Abigeo se embozaba también, cada tres meses, un poncho asqueroso, se enncasquetaba una máscara de nieve de infernales colores y se largaba a las jalcas: durante semanas despojaba a las haciendas, luego atravesaba con sus tropillas la rudísima cordillera de Oyón. Renacía borracho en estruendosas pachamancas.  
+—He sido perdonado —se carcajeaba.  
+—¿Quién te ha perdonado?
+—He robado a las haciendas; ladrón que roba a otro ladrón, tiene cien años de perdón.  
+Los hacendados, furiosos con la plaga, mandaban batir los caminos. Era inútil. El Abigeo estaba investido de los poderes del seuño: muchos días antes de que las patrullas soñaran en escoger un camino de herradura, conocía el sitio exacto dónde, vanamente, se apostarían los cazadores.  
+—Hace treinta días —dijo el Abigeo— te soñé entrando con esa misma ropa, igualito.  
+Verdaderamente, conocía el futuro. La gente que extraviaba cosas le pagaba una botella de aguardiente y una libra que él sólo aceptaba para demostrar algún medio de vida. Siempre las hallaba. El Abigeo descubrió el lugar donde el difunto Matías Zelaya había guardado las escrituras de su chacra sin pensar que todo hombre puede ser visitado sorpresivamente por la Pelona. Él descubrió que era una calumnia el robo de doce cucharillas de plata que se le achacaba a uno de los pensionistas del Hotel Mundial: la misma viuda Lovatón las había hundido, por descuido, en un saco de molienda. Pero con los años trató de limitar su poderío: las autoridades le reclamabann, con demasiada frecuencia, las señas de los fugitivos. Sólo en ua oportunindad fracasó estruendosamente: el herrero de Yanacocha —un gigantesco bruto con el que se negaba a acostarse una mujer aterrorizada por las inhumanas dimensiones de su martillo— lo obligó a recibir una arroba de aguardiente: quería conocer las pisadas del hombre que le calentaba el agua a su mujer. La bestia amanecía en la puerta del Abigeo. "¿Qué has soñado?" "He soñado con peces. Sólo distingo agua. El viento me impide mirar en mis sueños", contestaba el Abigeo desalentado. "¿Dónde mierda está tu poder?", bramaba el herrero. La gente comenzó a reírse. "El Abigeo usa de tretas para beber gratis." Pero el Abigeo conocía perfectamente al hombre que dormía con la mujer del herrero: era él mismo. Y supo también quién le batía el puré a la hija del Gobernador. Enn su sueño la descubrió acostada al lado del hombre que la desposaría, un maestro de un lejano caserío; pero le miró con tal tristeza en los ojos que prefirió pasar por la vergüenza de devolver los diez soles.  
+Se abrazaron y se fueron a beber.  
+—Esto merece una docena de cervezas —dijo el Ladrón de Caballos.  
+—¿Por qué tan avaro, compadre? —lo resondró el Abigeo.  
+Penetraron en la tienda de don Carmelo, un destartalado saloncito en cuyos estantes se aburrían veinticuatro cervezas, ocho latas de leche Gloria, media docena de sardinas y un costalillo de sal.  
+—¿Qué se van a servir? —preguntó don Carmelo, aburrido con la perspectiva de unan tarde de trabajo. Era empedernido practicante del consejo de San Boromondo, "Si el alcohol perjudica tu trabajo, deja el trabajo."  
+—Bájese una docena de cebadas —ordenó Agapito Robles.  
+—Bájese todas —rectificó Chacón.  
+—Bebieron toda la tarde.  
+—¿Cómo encontró su casa? —le preguntó, ya oscuro, el Abigeo.  
+—No he llegado a mi casa —dijo Chacón y se volvió a Robles.  
+—¿Así que tú eres el nuevo Personero?  
+—Para lo que guste mandar.  
+—Supongo que no te sobrará la mantequilla.  
+Se rieron. Los antiguos personeros, compadres del Juez, guardaban silencio sobre sus avances. En sus casas sobraban el queso y la mantequilla: se los traían cada semana los peones de Huarautambo.  
+—Para lo que guste —repitió Robles.  
+Chacón lo talló con su mirada, capaz de descubrir sapos debajo de las piedras.  
+—Sólo me gustaría una cosa. Para eso he venido.  
+—A mí también me gustaría.  
+—¿Seguro?  
+—Hay hombres de paja y hombres de hueso, don —y en sus ojos se empozaron el coraje y el miedo.  
+Treinta días después, Héctor Chacón soñó que cabalgaba por un camino de nieve, absurdamente plagado de flores. El escándalo de una canción solitaria —cuyas frases no comprendía— convocaba a los hombres: diez, cien, doscientos, quinientos, mil, cuatro mil hombres avanzaron por el mismo camino cantando la canción inaudita. Cabalgaron meses por comarcas sin sed ni fatiga, hasta que encontraron un camino de herradura que conducía a la provincia; bajaron, atravesaron el puente, inundaron la plaza. Mirando aquella muchedumbre, los guardias civiles huyeron despavoridos. La multitud atravesó la plaza y derribó violentamente las puertas azules de la casa del doctor Montenegro. Pálidos huyeron los caporales, el mismo doctor escapó de habitación en habitación, lo persiguieron a través de un laberinto de habitaciones inmensas, unas cubiertas de nnieve, tapiadas otras por selvas, siempre cantando lo capturaron y lo sacaron a la plaza. Eran las tres de la mañana, pero el sol, un diamantino sol, ardía. Los alguaciles convocaron con cornetas a todos los hombres y animales de la provincia para juzgar al doctor Montenegro. El Alguacil Mayor se vistió de blanco y preguntó: "¿Hay alguien que no haay sido afrentado por este hombre?" Nadie se levantó. "Perdóname, no lo volveré a hacer", sollozaba el traje negro. El Alguacil solicitó la declaración de los perros. "¿Hay algún perro que no haya sido pateado por este hombre?" Los perros inmovilizaron sus colas. El Alguacil insistió: "¿Hay algún gato que no haya sido quemado por este hombre?" Los veloces pájaros, las alegres mariposas, los vivísimos chingolos y los soñolientos cuyes testimoniaron. Nadie perdonó al doctor. Lo montaron en un burro y lo expulsaron de la provincia, entre músicas y cohetes.  
+Chacón se despertó con la boca seca, se levantó y salió al patio, buscó un cántaro y bebió un trago largo. No amanecía. Se mojó la cabeza. Sentado en el poyo esperó la claridad. Sobre las mismas piedras lo había corneado, hacía ocho días, el segundo deseo de matar al doctor Montenegro.  
+Esta madrugada, lo visitó el ansia de matarlo de verdad.  
+Se agachó y arrancó una hierba; la mordisqueó. Clareó. Volvió a la habitación donde su mujer, calmada por sus montadas, se afanaba con sus prendas. Sacó una camisa nueva comprada en Huánuco con el producto de una última docena de sillas de paja tejidas en la cárcel, se la puso y salió a la calle. Cinco minutos después penetró en el patio del Abigeo.  
+En cuclillas, el Abigeo se preparaba a matar un carnero.  
+—¿Qué mosca te ha picado, Héctor?  
+El Nictálope se agachó y ayudó a sujetar las patas del animal a las estacas. El carnero balaba débilmetne. Amarró las patas traseras. El Abigeo sacó el cuchillo y degolló al animal de un solo tajo. La sangre saltó sobre las ollas negras. Oliéndolas, los perros, a un metro, tiritaban.  
+—¿Hay gente de confianza en este pueblo?  
+—¿Para qué empresa?  
+—Para pararle el macho a un hombre imperioso.  
+El Abigeo se rascó la cabeza.  
+—Habría —y arrojó las partes inútiles a los perros.  
+—¿Puede usted citarlos?  
+El Abigeo limpió el cuchillo ensangretado en la hierba.  
+—¿Dónde?  
+—En cualquier parte, pero de noche.  
+El Abigeo le miró la gravedad de sus pensamienntos.  
+—Veré.  
+
+## 12 Acerca de la ruta por donde viajaba el gusano  
