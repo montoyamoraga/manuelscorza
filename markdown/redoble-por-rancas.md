@@ -464,4 +464,21 @@ Los mequetrefes de Yanahuanca rebuscaron los baúles. El sábado, los comerciant
 *Yo la quería, patita,  
 era la gila más buenamoza  
 del callejón,*  
-se  
+se  lamentaba la vitrola desencadenada en la confusión de sentimientos. Imparcialmente el cantor proclamaba la desgracia.
+*Hoy me pasaron el dato,  
+el blanquiñoso que la tenía la abandonó.*  
+El sargento Cabrera interrumpió el vals y ordenó a la banda arremeter con el "Ataque de Uchumayo". El locutor se desgañitó: "Señoras y señores, ha llegado el momento esperado por toda la culta colectividad. ¡Faltan pocos minutos para el sensacional sorteo! ¡Faltan cinco segundos, cuatro, tres, dos! ¡Acérquense, veánlos! ¡Nunca se ha visto en la provincia, qué digo provincia, departamento, animales semejantes, verdaderos lores de la ganadería mundial!"
+—¡Tres hurras para doña Josefina! —gritó una alumna deseosa de congraciarse—. ¡Hip...!  
+—¡Hurraaa...!  
+Doña Josefina no logró contener un hipo. El locutor pidió permiso para iniciar la rifa. El Subprefecto Valerio se quitó el sombrero. Un niño vestido con un traje marinero se acercó a un pequeño barril de hojalata pintado con los colores patrios por cortesía de la Benemérita Guardia Civil. El público contuvo la respiración. Una brisa mortífera se levantó de las axilas enemigas del agua.  
+El niño metió la mano en el ánfora, sacó un boliche y lo entregó al locutor.  
+—Curaenta y ocho —cantó el locutor.  
+Todos los ojos buscaron el rostro de la buena suerte.  
+—¡Presente! gritó con voz agarrotada un hombre de rostro antipático: Egmidio Loro.
+—Acérquese —ordenó doña Josefina de la Torre.  
+El hombre de cara empedrada de granos se aproximó con las manos sudorosas.  
+—Lo felicito —sonrió la Directora—. Escoja un carnero.  
+—¡Cualquierita, cualquierita! —suspiró Loro.  
+Le entregaron un carnero de estampa mitológica.  
+*El Abigeo abandonaba las riendas de* Primavera, *confiado en el conocimiento del caballo. Pensaba. Por primera vez en su vida no distinguía las palabras moduladas en sus sueños por los Viejos. El Viejo del Agua, el Viejo del Fuego y el Viejo del Viento masticaban frases de lana. No descifraba el mensaje. Quiso purificarse, ayunó varios días y hasta se privó de visitar a sus mujeres. No oyó mejor. Los Viejos anunciaban un forastero sin rostro. Era un hombre que en vez de cara ostentaba una pared de carne lisa surcada por seis rayas negras. Los viejos lo condujeron por el camino a Chinche y se escamotearon entre las rocas. El Hombre de las Seis Rayas avanzaba por el camino seguido por una multitud de hombres igualmente sin rostro. La formación avanzaba hacia Murmunia. Por la respiración acezante de los sin cara, el Abigeo reconoció que eran forasteros. Se confundió en las filas. Cerca de Murmunia tropezaron con un jinete. Por el desorden de sus riendas se le descubría, a la legua, la borrachera. El Abigeo se acercó y envejeció: era él mismo. Inocultablemente, miró su propio rostro salpicado de harina y su cuello de toro enredado de serpentinas. ¿Qué fiesta era? El Abigeo pasó al costado del Abigeo sin reconocerlo. Y peor: como si el soñador fuera invisible, el Abigeo se detuvo al lado del Abigeo y orinó serpentinas. El Otro no se alarmó: más que por el siniestro chorro se interesaba por leer el mensaje escrito en las serpentinas. No pudo y se aburrió. El Abigeo se acercó y trató de leer: sólo descifró palabras confusas: "...carnaval..., laguna..., corre, corre..., el panadero de los muertos..."  
+*
