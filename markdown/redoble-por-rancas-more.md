@@ -71,3 +71,51 @@ Melecio de la Vega acercó un espléndido zaino ensillado con arreos huancavelic
 —Yo tengo muchos años de experiencia. He asistido a muchos comparendos. Cuando hay multitud no se puede hacer nada.  
 —Pero la tierra —insistió la aterciopelada voz de Chacón— pertenece a todos.  
 Atravesaron las últimas casas. La mañana se plateaba en los eucaliptos.
+
+## 18 Sobre las anónimas peleas de Fortunato  
+
+Septiembre encontró más de treinta mil ovejas muertas. Ensordecidos por el estruendo de su desgracia, los pueblos sólo sabían llorar. Sentados en el mar de lana de sus ovejas moribundas, sollozaban, inmóviles, con los ojos fijos en la carretera.  
+El tercer viernes de septiembre el Personero Rivera mandó llamar al Padre Chasán. El padrecito vino a celebrar. Todos los pecadores, todos los ranqueños, llenaron la iglesia. El padre pronunció un sermón oído de rodillas.  
+—Padrecito —preguntó el Personero al terminar la misa—, ¿por qué Dios nos envía este castigo?  
+El padre respondió:  
+—El Cerco no es obra de Dios, hijitos. Es obra de los americanos. No basta rezar. Hay que pelear.  
+La cara de Rivera se azuló.  
+—¿Cómo se puede luchar con "La Compañía", padrecito? De los policías, de los jueces, de los fusiles, de todos son dueños.  
+—Con la ayuda de Dios todo se puede.  
+El Personero Rivera se arrodilló.  
+—Bendición, padrecito.  
+El padre Chasán dibujó una cruz.  
+Comenzaron a pelear. A las cuatro de la mañana, Rivera tocó todas las puertas de los varones. Se reunieron en la plaza. Helaba. Saltaban sobre las piedras para no pelarse de frío. Se armaron de garrotes y hondas. Se repartieron tres botellas de cañazo. Todavía oscuro se agazaparon para esperar la ronda de "La Compañía". El sol no conseguía sacar las patas de la tela de araña de una neblina rosada. Vagas estatuas ecuestres emergieron. Cayeron sobre los cabalgados. El miedo endureció sus puños coléricos. Brillantes de excitación y de rocío, los perros participaban de la cólera. Los sorprendidos caporales, magullados, con las caras rajadas por los hondazos, se esfumaron en la neblina.  
+—¡Rompan el Cerco! —ordenó el Personero Rivera escupiendo un diente.  
+—¿Qué cosa, don Alfonso?  
+—¡Rompan el Cerco y metan el ganado! —insistió el Personero secándose la sangre de la nariz con un pañuelo mugroso.  
+Obedecieron. Volvieron a Rancas por las ovejas: tuvieron que arrastrarlas. Pero el pasto es milagroso; una hora después los borregos comían y saltaban, de nuevo, entre los perros, locos de contento. Esa noche, por primera vez en semanas, sonaron risas en Rancas. Todos se jactaban de verdaderas o imaginarias hazañas. Los mismos comerciantes fiaban contentos. Don Eudocio invitó a todos los que mostraban caras magulladas o labios rotos.  
+Siguieron peleando. Cada madrugada se enfrentaban a las rondas de la "Cerro de Pasco Corporation". Como antes al pastoreo, salían ahora a cumplir el antiquísimo rito de los varones. Volvían ensangrentados. Egoavil, el jefe de los caporales, un jayán de casi dos metros, reforzó a su gente. Se acabaron las patrullas de cinco: las rondas de "La Cerro" se cumplían de veinte en veinte cabalgados. Así y todo peleaban. Y los más fieros eran los viejos. "Nosotros no tenemos dientes —decían—. ¿Qué nos importa que nos rompan la jeta? Ustedes, jóvenes, cuiden sus dientes para agradar a las muchachas ¿Nosotros de qué servimos?"  
+Pero Egoavil no era manco. Una mañana los pastores de "La Florida" entraron en Rancas llorando detrás de un rebaño de vacas que mugían lastimeramente. Las vacas parecían cuyes: no tenían rabo. Así empezó la violencia. Oveja que encontraban las cuadrillas era oveja pisoteada. Y pasó peor: una madrugada tres pastores se calentaban delante de una fogata de bosta. La neblina era espesa. Se entibiaban al pie de una ladera cuando crepitó una carcajada. Se levantaron alarmados mientras una pelota rodaba hasta sus pies. Se acercaron: era la cabeza de Mardoqueo Silvestre.  
+La gente comenzó a ralear. Los últimos que se atrevían a pelear, volvían arrastrándose. En vano el Personero tocaba las puertas obstinadas. A fines de septiembre ni los valientes osaron combatir. Un día los caporales vinieron con uniformados. Un pelotón de la Guardia Republicana escoltó, desde entonces, a la ronda. Atacarla era atacar a la Fuerza Armada. Egoavil entró en Rancas acompañado de tres guardias republicanos, ostentosamente recorrió la calle, taconeó en la plaza y entró en la cantina de don Eudocio.  
+—Una docena de cervezas para los señores guardias —gruñó recostándose en el mostrador.  
+Hubo que servirle.  
+En la vastedad de los campos clausurados sólo quedó Fortunato.  
+En casetas de madera apresuradamente construidas por los carpinteros de la "Cerro de Pasco Corporation", la Guardia Republicana colocó centinelas, cada kilómetro. Nadie se atrevió a atacar.  
+Nadie salvo Fortunato.  
+Cuando Egoavil, el gigantesco hijo de puta, jefe de los caporales, miró al único adversario de "La Compañía" la risa casi lo derribó de la silla. Se carcajeó hasta las lágrimas y se alejó. Pero al día siguiente la ronda tropezó, de nuevo, con el viejo. En su aplastada cara ardían dos candelas. El viejo divisó a los jinetes y les soltó un hondazo.  
+Desmontaron y lo molieron a puñetazos. Fortunato volvió arrastrándose. La madrugada siguiente, insistió. Egoavil mandó tallarlo a latigazos. El *Cara de Sapo* —así lo llamaba Egoavil— se retorcía como culebra, pero no gritaba.  
+Cuando los látigos lo desdeñaron tenía los labios mordidos.  
+—¡Si quieres, vuelve mañana por el vuelto! —gritó Egoavil.  
+Volvió. Regresó a Rancas igualito al San Sebastián de la iglesia de Villa de Pasco. Un camino de cuatro kilómetros le demoró tres horas. Entró dejando un reguero de sangre.  
+—No insista, don Fortunato —le suplicó esa mañana Alfonso Rivera—. Usted solo no puede. Uno solo no puede pelear contra quinientos.  
+—Te matarán, papacito —sollozaban sus hijas—. Vivo nos sirves; muerto, no nos traerán ni agua.  
+—Solo no puedes, Fortunato —insistió Rivera.  
+No contestó. Siguió peleando. Día tras día salía a enfrascarse en las inútiles peleas. Para los caporales no era un combate, era un diversión. Los barbajanes se lo rifaban. "No le pegues muy duro, hay que conservar a nuestro sapito", se burlaba Egoavil. El viejo seguía acudiendo a la cita. Caía y se levantaba. No cedía. Era como esos tentetiesos que, doblados en cualquier dirección, siempre vuelven a quedar erectos. Maltratarlo era una rutina que dependía de los humores de Egoavil. Así, al amanecer de la noche en que la *Culoeléctrico* lo desairó públicamente después de bebérsele una botella de anisado *Poblete*, Egoavil quiso quitarse esa mosca del ojo. Ocho jinetes clausuraron un círculo alrededor de la palidez del viejo. Una hora se lo cedieron, uno a otro, a puntapiés y puñetazos. Fortunato se tambaleaba mareado; su cara era una máscara desportillada. Cuando lo soltaron, no se le veían los ojos. Se derrumbó como un saco vacío.  
+Se quedó tirado sobre el pasto, jadeando, cara al cielo, con la boca abierta. Unos arrieros lo recogieron al mediodía: entró en Rancas vomitando. Se tiró lacio en su jergón tres días con la verde-amarilla-morada cara cubierta con pedazos de carne fresca. El cuarto día se levantó. La quinta madrugada salió, de nuevo, a enfrentar a la ronda. Encontró a Egoavil cambiado. Esta vez no descendió ningún jinete.  
+—¡Váyase, Fortunato, lárguese! —le gritaron, alejándose.  
+El viejo quiso perseguirlos a pedradas, pero se lo prohibieron su debilidad y el trote de los bastardos.  
+Egoavil había comenzado a soñarlo. Fortunato lo perseguía en sueños. Se le aparecía todas las noches. En su soñera vagaba por un desierto, más allá de toda fatiga, cuando oyó una voz; alamardo, Egoavil apresuró el paso, pero lo silbaron de nuevo. ¿Quién podía nombarlo en esa planetaria soledad? Siguió huyendo de la voz implacable. Sólo leguas más allá reconoció aterrado que el hablador era su caballo; se descabalgó tiritando para descubrir que el cuartago tenía la tumefacta, la anaranjada cara de Fortunato. Y soñó también que encontraba en su dormitorio un retrato de viejo. Enloquecido, arrancó el rostro odiado sólo para descubrir que era un calendario atroz y que debajo de cada cara arrancada surgían cientos de rostros del viejo: Fortunato riéndose, Fortunato sacándole la lengua, Fortunado llorando, Fortunato guiñándole los ojos, Fortunato con la cara azul, Fortunato con la cara agujereada, Fortunato granizado. Y soñó peor: Fortunato se le apareció crucificado. Lo ensoñó como un Jesucristo clavado en una cruz. Los fieles de Rancas, los devotos de toda la tierra, seguían el anda rezando. El crucificado vestía los mismos pantalones sebosos y la deshilachada camisa del viejo; en lugar de la corona de espinas, lucía su sombrero rotoso. Nítidamente Egoavil distinguió la cara hinchada. El crucificado, el Señor de Rancas, aparentemente, no padecía; de tiempo en tiempo descolgaba un brazo y se llevaba a la boca una botella de aguardiente. Egoavil avanzó tras el anda temblando, con una vela en la mano, queriendo ocultarse, pero el crucificado lo reconoció y le gritó: "¡No se me corra, Egoavil! ¡Mañana nos veremos!", guiñándole un ojo tapiado por una amarilla, atroz putrefacción. Se despertó gritando.  
+Calmosamente, sentado en una roca, el viejo se remangó la camisa. Egoavil sintió la boca de paja.  
+—¡Don Fortunato! —enronqueció desde el caballo—. Yo sé de sobra que usted es un macho. —Y su mano despectiva abarcó la ronda silenciosa—: Aquí no hay ningún varón como usted. Ninguno de estos huevones es tan hombre como usted. ¿Para qué seguir esta pelea? Usted solo no puede nada, don Fortunato. "La Cerro" es poderosísima. Todos los pueblos se han echado. Usted es el único que insiste. ¿Para qué seguir, don Fortunato?  
+—¡Baja o te bajo, cabrón! —gritó el *Cara de Sapo*.  
+—Por favorcito, don Fortunato, no me insulte.  
+—¡Hijo de puta por parte de madre!  
+—No queremos pegarle. Si usted no se presenta por aquí, ya no volverá la ronda.  
+—¡Hijo de puta por parte de padre!  
+Egoavil recorrió los rostros tensos de la ronda, entrevió la faz de Cristo, sintió el sudor de la soñarrera y saltó del caballo. Se trenzaron. Fortunato atacaba con rabia, con puñetazos de mula. Egoavil respondía con golpes de lana.
