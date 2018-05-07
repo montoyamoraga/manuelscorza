@@ -981,3 +981,141 @@ No se atrevieron a desairar a las autoridades. Y se suspendió igualmente un té
 —Es diciembre —dijo don Migdonio—. Pronto no se podrá transitar por los caminos.  
 —Vienen las lluvias —concedió el doctor.  
 —Mejor nos quedamos aquí —suspiró don Migdonio, resignado a perder cuatrocientos soles.  
+
+# 20 Sobre la pirámide de ovejas que sin afán de emular a los egipcios levantaron los ranqueños
+
+Había una vez un viejo terco como una mula. Un viejo de cara aplastada y ojos saltones apodado *Cara de Sapo*. No quería comprender que la "Cerro de Pasco Corporation" jugaba con un capital de quinientos millones de dólares. Él poseía una treintena de ovejas, una cólera y dos puños. Y había un jefe de ronda llamado Egoavil, un jayán de casi dos metros, bruta mirada y ojos atravesados que ganaba miles de soles cortando el rabo de las vacas y aplastando corderos con su caballo. No obstante lo cual, la *Culoeléctrico* se le bebió una botella de coñac *Poblete* y no quiso abrirle las piernas. Desaire que pagó el viejo. Una pateadura que lo dejó peor que palo de gallinero. Pero sucedió que el bruto empezó a soñar al viejo. El mal de los sueños lo enflaqueció. El viejo se le aparecía con cara de Cristo. Una viveza criolla. Pero no se golpea inpunemente a Jesucristo. Un día el viejo reposaba —¿reposaba?— tendido sobre su pellejo. Pedacitos de carne fresca cubrían sus escoriaciones. El escaso cielo que autorizaban sus ojos hinchados estaba nublado. Pero aun ese cielo lo perdió. Un hombre flaco, de pómulos huesudos, de grandes orejas transparentes, oscureció la puerta. El viejo reconoció a uno de los granputas de la ronda. Se levantó dispuesto a la mechadera. El de las orejas traslúcidas avanzó, mansa paloma, con el sombrero en la mano.  
+*El de las orejas transparentes*  
+(bizqueando los ojos)  
+—Muy buenos días, don Fortunato. Permítame una palabrita. Vengo a hablarle en nombre de Egoavil.  
+*El viejo terco*  
+(sin considerar las damas asistentes a la lectura)  
+—No nombre a ese hijo de puta en mi casa.  
+*El de las orejas transparentes*  
+(chupándose las muelas, nervioso)  
+—No se me caliente, don Fortunato. Permítame, don Egoavil reconoce que usted es un verdadero macho. A causa suya nos insulta y nos desprecia: "Yo quisiera hombres como Fortunato, no una banda de imbéciles como ustedes." Eso dice don Egoavil en su borrachera.  
+*El viejo terco*  
+(escupiendo saliva verde de coca)  
+—¿Qué quiere?  
+*El de las orejas transparentes*  
+—Don Egoavil está cansado de pelear. Quiere amistar con usted. Si usted quiere puede meter su ganado en nuestros campos.  
+*El viejo terco*  
+—No son sus campos. Abusivamente ustedes han cercado tierra ajena.  
+*El de las orejas transparentes*  
+(definiendo la condición de los subdesarrollados)  
+—Yo no soy sino un pobre asalariado, don Fortunato.  
+*El viejo terco*  
+(frunciendo las cejas para disimular su alegría)  
+—Y ¿cómo sería?  
+*El de las orejas transparentes*  
+(con la esperana de ahorrarse una mentada de madre por parte de Egoavil)  
+Usted metería su ganado de noche. (Sin atender, nuevamente, a la presencia de damas.) Nosotros nos haríamos los cojudos. Don Egoavil sólo le suplica que meta su ganado de noche. No lo comprometa.  
+*El viejo terco*  
+(demostrando pobre elocución)  
+—¡Hum!  
+*El de las orejas transparentes*  
+—Reflexione, don Fortunato. Es un crimen dejar morir a las ovejitas.  
+*El viejo terco*  
+(invadido de auténtica cólera)  
+—¡Ahora te acuerdas, cabrón!  
+*El de las orejas transparentes*  
+—No se me irrite, don Fortunato (sin considerar que las repeticiones lastiman a los exquisitos.) Yo soy un infeliz. Así es (suspirando). Para que no le falte a la familia uno se ensucia.  
+"Cuidado, Fortunato, es una trampa", advirtieron los pastores. El viejo contestó: "¿Qué puedo perder? Peor que morir no hay. ¿Cuántos animales me quedan?" Reunió los restos de su rebaño. Esa noche desató, con un par de alicates, el alambrado del pastizal Querupata. Sus ovejas pastaron toda la noche. El viejo volvió al amanecer, helado, pero contento. Volvió. Los pastores miraban fascinados sus recuperados borregos. "Aprovechen. ¿Qué pueden perder?", insistía Fortunato. No se atrevían. ¿Quién creen que se decidió? Una mujer, doña Silveria Tufina, fue la única que le solicitó que juntaran sus puntas. Fortunato arreó los dos rebaños, convencido de que esa noche disiparían el terror. Desamarró el alambre y metió los animales. Se le cerraban los ojos. "Por favor, doña Tufina, estoy como agotado. Me voy a dormir un ratito, ya vuelvo." Lo despertó el sol. Saltó de su pellejo, alarmado, metió la cabeza en un balde de agua y se lanzó a la pampa. La neblina no se esfumaba. Corría y corría. Desde lejos distinguió a Tufina, sentada en una roca. Se tranquilizó.  
+—¿Estás bien?  
+No le contestó.  
+—¿Pasa algo?  
+Mala suerte —dijo Tufina abarcando vagamente las rocas.  
+Fortunato trepó a la loma quemada por la nebladera y miró un horizonte de animales degollados. Hirvió en el caldo de una rabia loba. Alzó los ojos. Los primeros buitres revoloteaban puntuales.  
+—Señorita, duérmete —sollozó la vieja acariciando la cabeza de una borrega moribunda.  
+Fortunato arrancó un puñado de hierba y lo arrojó al aire. Un viento frío dispersó los yerbajos: tres briznas le azotaron la cara.  
+—¿Quiénes fueron?  
+—¡Señoritas, no me dejen, señoritas!  
+—¡Esto no puede quedar así! ¡No puede quedar así!  
+Arrancó de nuevo el pasto, lastimándose los dedos en las espinas.  
+—¡Fueron los perros, fue Egoavil!  
+Sus mandíbulas se confundieron con los perfiles de las rocas puntiagudas.  
+—Quédate aquí —ordenó—. Vigila tus muertecitos. —Y corrió a Rancas aún extraviada en la vaharina. Fortunato atravesó la callejuela y corrió hasta el campanario, abrió la puerta, subió los quince escalones y sacudió la campana. Su brazo colérico tañía la campana sin ritmo, con rabia. Instantáneamente la plaza engordó de rostros graves. Fortunato descendió. Los hombres rodeaban el cuerpo destrozado de una oveja. Se detuvo en la puerta. La sangre le salpicaba el pecho.  
+—¿Ustedes son hombres o mujeres?  
+—¿Qué pasa, don Fortunato?  
+—Los caporales de "La Cerro" sorprendieron a la señora Tufina, pisotearon los carneros con sus caballos y luego les echaron los perros. Han muerto. Hombres o mujeres no sé lo que son. ¿Qué esperan? ¿Que el Cerco entre en nuestras casas? ¿Esperan que la mujer no pueda acostarse con el varón?  
+Los rostros se empequeñecían, se azulaban con un color distinto al día naciente. En los ojos se apagaba y se encendía, nacía y renacía un coraje extinto.  
+—Aquí ya no se puede retroceder. Retroceder es tocar elcielo con el culo. Hombres o mujeres, no sé lo que son, pero tenemos que pelear.  
+La neblazón no se disipaba. Las rocas exhalaban blanquecinas fumarolas. Incas, caciques, virreyes, corregidores, presidentes de la república, prefectos y subprefectos eran los mismos nudos de un quipus, de un hilo de terror inmemorial.  
+—Fortunato tiene razón —dijo Rivera, envejecido. Los roquedales, el viento, los rostros, se arrugaban en otra más usada edad. En la voz rauca se notaba la vejez. ¡Hay que reclamar! —gritó— ¡Vamos a Cerro! ¡A Dios, al Prefecto, al Juez, a los perros, a quien sea, quejémonos! Que la gente vea nuestro dolor.  
+—Las autoridades están vendidas —aulló Abdón Medrano—. Aquí no hay nadie a quien reclamar.  
+Él también tenía un nuevo rostro untado de severidad.  
+—¡No importa, hay que reclamar!  
+Fortunato levantó la borrega y se la colocó sobre los hombros. El Personero Rivera, que tenía en su casa la historia de Jesucristo, recordó que en uno de los grabados un profeta, otro hombre airado, se había colocado una oveja sobre los hombros, antes de predicar la perdición y el fuego, pero no dijo nada: no sabía hablar.  
+—Vamos a recoger las ovejas —dijo Fortunato—, y marchemos a Cerro de Pasco.  
+Recogieron los animales. Entre hombres, mujeres y niños se apretujaron un centenar. La mañana ceñuda se agazapaba en la pampa. Pasaron chillando patos salvajes. El viento helado recortaba los rostros angustiados. Descendieron a la hoya y recogieron las ovjeas. En el camino se les unieron otros pastores. Miraban la caravana y, sin palabra recogían sus ovejas y marchaban: casi eran cien. Recorrieron en silencio diez kilómetros. Avistaron Cerro. Un sol desmemoriado despintaba las primeras casas. Penetraron a la avenida Carrión y avanzaron entre los hoyos cavados por las herraduras de las acémilas. La gente le cedía el paso al cortejo.  
+—¿Qué pasa? —inquirían, pero miraban la fila de hombres cargados con las ovjeas muertas y callaban.  
+—¡Miren lo que nos hace "La Cerro"! —gritó Fortunato—. No se conforma con cercar nuestras tierras. Matan a nuestros animales con sus perros. ¡Pronto nos matarán a nosotros! ¡Pronto no quedará nadie! ¡Pronto cercarán el mundo!  
+La voz sonaba como si la ciudad fuera el badajo de una colosal campana vacía. Eran las doce. Empleados y obreros mal vestidos se alineaban en las veredas. El viejo convocaba las furias de su impotencia.  
+—¡Han cercado Rancas! ¡Han cercado Villa de Pasco! ¡Han cercado Yanacancha! ¡Han cercado Yarusyacán! ¡Encerrarán el cielo y la tierra! ¡No habrá agua para bebr ni cielo para mirar!  
+—¡No hay derecho!  
+—¡Esto es un abuso!  
+—¡Estos gringos de mierda no tienen derecho a botarnos de nuestra tierra!  
+—¿Qué hacen las autoridades?  
+La gente se indignaba. Un minero alto y flaco se destocó el casco amarillo y se lo colocó sobre el pecho, como ante un entierro. Un vendedor de gorros de piel, un gordo desdentado, lo imitó. Recorrieron la avenida Carrión. Eran cientos cuando entraron en la plaza.  
+—¡A la Prefectura! ¡A la Prefectura!  
+La harapienta multitud dobló la calle y se dirigió hacia la Prefectura del departamento, un destartalado edificio de ventanas verdes en cuya puerta se aburrían dos guardias republicanos. Los mal vestidos guardias miraron a la multitud y enristraron sus viejísimos máuseres 1909, comprados con el producto de una colecta nacional piadosamente levantada para rescatar las provincias cautivas: Tacna y Arica.  
+De la Prefectura emergió un cabo rechoncho, de cara avinagrada. La mal abotonada polaca denunciaba el almuerzo interrumpido. Seis guardias hoscos se alinearon detrás de su mal humor. Ante las armas, como siempre, la multitud se detuvo.  
+—¿Qué pasa? —gritó el cabo.  
+—Queremos hablar con el Prefecto —se humilló Fortunato.  
+El cabo no consideró necesario abrocharse.  
+—¿Quiénes son ustedes?  
+—Yo soy... nosotros somos comuneros de Rancas —se atragantó el Personero Alfonso Rivera. Quería hablar, pero le faltaban palabras, sudaba.  
+El cabo los vistió, de nuevo, de desprecio.  
+—Voy a consultar —gruñó y penetró en el corredor. La multitud silenciosa escuchó el taconear de las botas gastadas. Volvió a los cinco minutos. Para hablar con su oficial se había abotonado reglamentariamente la polaca; pero, ahora, frente a la multitud, se la desabotonó de nuevo.  
+—El señor Prefecto no está. —Y los miró con rabia. El bistec encebollado se le engrasaba.  
+—Pero si lo hemos visto en la ventana —se quejó Fortunato.  
+—¡No está y no está! —gruñó el cabo.  
+El rostro de los hombres no se tiñó de desilusión. Enardecidos por las palabras de Fortunato habían soñado, por un instante, en la queja. El cabo los volvía a la realidad. El Prefecto no estaba. Las autoridades no están jamás. Hace siglos que en el Perú no está nadie.  
+—Está bien —se resignó Fortunato—. Lo que queríamos es que viera esto —y levantó los brazos y depositó su carnero muerto en la puerta.  
+—¡Fuera de ahí! —gruñó el cabo.  
+—Depositen sus animales —ordenó Rivera.  
+Los hombres vacilaron. Chispas de miedo salpicaron sus pupilas. No se atrevían. Hacía cientos de años que perdían todas las guerras, hacía siglos que retrocedían.  
+—Obedezcan —dijo el Personero Rivera depositando su montón de sufrimiento. Abdón Medrano lo imitó, luego todos. Los gritos del cabo y los culatazos de los guardias no impidieron el crecimiento de una pirámide de ensangrentadas cabezas. Un vertiginoso montículo de animales muertos se levantó en la puerta de la Prefectura, bajo el desteñido escudo que proclamaba que allí, en aquel edificio de dos pisos, de ocho ventanas verdes, residía el representante político del señor Presidente de la República, su Excelencia, don Manuel Prado.  
+El grito del cabo rezumaba miedo. Conocía la tozudez india: veinte años de servicio en las serranías le enseñaban que cuando los comuneros comienzan algo, nada los detiene. Y por cansancio, por tristeza, por inconsciencia, seguían depositando sus carneros, ignorantes de que si cayera la Prefectura ellos serían los primeros triturados. La Prefectura de Cerro de Pasco se levanta en una esquina. Por la derecha limita con la prestigiosa abarrotería "La Serranita" y por la izquierda con el jirón Libertad. (En ninguna ciudad del Perú faltan calles denominadas "Libertad", "Unión", "Justicia", "Progreso".) Hacia allí se ladeaba la Prefectura, abrumada por el moribundo océano de lana. No se distinguían ya las ovejas vivas de las difuntas. Las ovejas se diferencian por una particularidad: aun degolladas sus cabezas siguen rumiando. Y fuera porque el paseo las confortaba o por simple afán de exhibicionismo, los corderos rumiaban, proseguían su estúpido, inútil trabajo.  
+Don Alfonso Rivera miró la pirámide de lana ensangrentada:  
+—¡Mejor vámonos! ¡No vaya a ser que la Prefectura se derrumbe y nos obliguen a pagar una multa!  
+—Sí, ya está bien —dijo Fortunato, salpicado de sangre.  
+Volvieron a la carretera. En la subida, a la altura de la iglesia, los alcanzó una camioneta de la Comandancia de Policía. Un teniente rabioso gritó desde la ventanilla.  
+—¿Ustedes son los que depositaron las ovejas en la Prefectura?  
+Hablaba golpeado. En la velocidad de sus palabras, secas y definitivas, se reconocía al oficial costeño para quien el desprecio por los indios es casi una naturaleza.  
+—Sí, señor.  
+—¿Quién es Fortunato?  
+—Yo, señor.  
+—¡Suba, inmediatamente! ¡El Prefecto quiere hablarle!  
+Fortunato saltó a la *pick-up*, pero antes de caer sobre el piso de la camioneta donde carajeaban de frío tres guardias republicanos, esbozó una sonrisa de triunfo. El Prefecto lo mandaba llamar. Por fin se quejarían. La camioneta arrancó. La sonrisa de Fortunato siguió flotando sobre la multitud excitada. Fortunato tenía razón. La *Ford* se perdió en el barro de las callejuelas. Se detuvo delante de la puerta de la Prefectura. El teniente saltó del guardafango.  
+—¡Sígame! —gritó sin volverse subiendo de dos en dos, agarrándose del barandal para no resbalar en los escalones inclinados. Fortunato trepó respetuosamente. La antesala de la Prefectura era un saloncito de mala muerte, amueblado por un juego de sofás imitación Luis XVI. Seis sillas de paja completaban el ruinoso mobiliario. El retrato del Presidente de la República, ingeniero Manuel Prado, sonreía bajo una triple fila de condecoraciones.  
+—Aquí lo tienes —dijo el oficial a un gordo desvaído de ojos mongólicos.  
+—¿Usted es Fortunato? —preguntó el secretario.  
+Se quitó el sombrero.  
+—Sí, señor.  
+—Pase.  
+Fortunato entró en el despacho. La oficina de la primera autoridad política del departamento participaba de la suciedad general. Ante el modesto escritorio, cubierto de cartapacios azules, esperaba, de pie, un hombre gordo, de labios gruesos y gran papada. El señor Figuerola, Prefecto del departamento de Cerro de Pasco, vestía un gastado traje azul de cuatro botones, comprado en los malos tiempos, antes de que el Presidente lo favoreciera.  
+—¿Usted es el tal Fortunato? —preguntó como quien pega un puñetazo.  
+—Sí, señor —respondió el otro con la boca pajiza de emoción.  
+El Prefecto Figuerola comenzó a pasearse por la habitación. Para calmarse la cólera se quebraba los nudillos de sus manos.  
+—¿Usted cree que la Prefectura es un camal para que me deje en mi puerta la mierda de sus carneros?  
+A Fortunato se le escurrió el alma.  
+—Señor Prefecto, yo sólo quería que usted viera el abuso; yo, señor...  
+El Prefecto se paseaba frente al hombre que se empequeñecía.  
+—Yo lo voy a secar en la cárcel por insolente. ¿Qué se ha creído usted, pobre diablo? ¿Que puede venir a joder con sus mugrosas ovejas?  
+La voz llegaba.  
+—Está bien. Ya sé que es delito mostrar el abuso —dijo el viejo ansioso de beber su milenaria copa de humillación.  
+El Prefecto, que se dominaba para no abofetear al mequetrefe, recordó su presión. El Prefecto, gracias a Dios, no había nacido en esa mierda de pueblo. Al señor Prefecto lo afectaba la altura.  
+—¡Oiga usted, imbécil, mostrar el abuso no es delito! Delito es manchar la puerta de la Autoridad.  
+—La "Cerro de Pasco Corporation" nos fuerza a quejarnos, señor. Usted debe de haber mirado con sus propios ojos el Cerco.  
+—Yo no sé nada. Hace años que soy autoridad. Yo he servido en casi todos los departamentos. Nunca he conocido un indio recto. Ustedes sólo saben quejarse: mienten, engañan, disimulan. Ustedes son el cáncer que está pudriendo al Perú.  
+—Señor, su presión —recordó respetuosamente el secretario. El Prefecto se sentó.  
+—¿Qué va a hacer con la porquería de los carneros?  
+—Me los llevaré, señor.  
+—¿Cómo se los piensa llevar?  
+—En la misma forma, señor Prefecto.  
+—¿Está usted loco? ¿Quiere repetir su pendejada?  ¡No, señor, lléveselos en un carro!  
+—Nosotros no disponemos de carro, señor —tartamudeó Fortunato.  
+—¡Llame al Consejo para que le presten el recogedor de basura!  
+—A mí no me harán caso, señor.  
+—Está bien —dijo el Prefecto Figuerola, resignado—. Está bien. Señor Gómez, llame usted de mi parte al Concejo Distrital y dígales que le presten un camión a estos imbéciles.  
