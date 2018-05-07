@@ -689,3 +689,295 @@ Melecio de la Vega acercó un espléndido zaino ensillado con arreos huancavelic
 —Yo tengo muchos años de experiencia. He asistido a muchos comparendos. Cuando hay multitud no se puede hacer nada.  
 —Pero la tierra —insistió la aterciopelada voz de Chacón— pertenece a todos.  
 Atravesaron las últimas casas. La mañana se plateaba en los eucaliptos.
+
+# 18 Sobre las anónimas peleas de Fortunato  
+
+Septiembre encontró más de treinta mil ovejas muertas. Ensordecidos por el estruendo de su desgracia, los pueblos sólo sabían llorar. Sentados en el mar de lana de sus ovejas moribundas, sollozaban, inmóviles, con los ojos fijos en la carretera.  
+El tercer viernes de septiembre el Personero Rivera mandó llamar al Padre Chasán. El padrecito vino a celebrar. Todos los pecadores, todos los ranqueños, llenaron la iglesia. El padre pronunció un sermón oído de rodillas.  
+—Padrecito —preguntó el Personero al terminar la misa—, ¿por qué Dios nos envía este castigo?  
+El padre respondió:  
+—El Cerco no es obra de Dios, hijitos. Es obra de los americanos. No basta rezar. Hay que pelear.  
+La cara de Rivera se azuló.  
+—¿Cómo se puede luchar con "La Compañía", padrecito? De los policías, de los jueces, de los fusiles, de todos son dueños.  
+—Con la ayuda de Dios todo se puede.  
+El Personero Rivera se arrodilló.  
+—Bendición, padrecito.  
+El padre Chasán dibujó una cruz.  
+Comenzaron a pelear. A las cuatro de la mañana, Rivera tocó todas las puertas de los varones. Se reunieron en la plaza. Helaba. Saltaban sobre las piedras para no pelarse de frío. Se armaron de garrotes y hondas. Se repartieron tres botellas de cañazo. Todavía oscuro se agazaparon para esperar la ronda de "La Compañía". El sol no conseguía sacar las patas de la tela de araña de una neblina rosada. Vagas estatuas ecuestres emergieron. Cayeron sobre los cabalgados. El miedo endureció sus puños coléricos. Brillantes de excitación y de rocío, los perros participaban de la cólera. Los sorprendidos caporales, magullados, con las caras rajadas por los hondazos, se esfumaron en la neblina.  
+—¡Rompan el Cerco! —ordenó el Personero Rivera escupiendo un diente.  
+—¿Qué cosa, don Alfonso?  
+—¡Rompan el Cerco y metan el ganado! —insistió el Personero secándose la sangre de la nariz con un pañuelo mugroso.  
+Obedecieron. Volvieron a Rancas por las ovejas: tuvieron que arrastrarlas. Pero el pasto es milagroso; una hora después los borregos comían y saltaban, de nuevo, entre los perros, locos de contento. Esa noche, por primera vez en semanas, sonaron risas en Rancas. Todos se jactaban de verdaderas o imaginarias hazañas. Los mismos comerciantes fiaban contentos. Don Eudocio invitó a todos los que mostraban caras magulladas o labios rotos.  
+Siguieron peleando. Cada madrugada se enfrentaban a las rondas de la "Cerro de Pasco Corporation". Como antes al pastoreo, salían ahora a cumplir el antiquísimo rito de los varones. Volvían ensangrentados. Egoavil, el jefe de los caporales, un jayán de casi dos metros, reforzó a su gente. Se acabaron las patrullas de cinco: las rondas de "La Cerro" se cumplían de veinte en veinte cabalgados. Así y todo peleaban. Y los más fieros eran los viejos. "Nosotros no tenemos dientes —decían—. ¿Qué nos importa que nos rompan la jeta? Ustedes, jóvenes, cuiden sus dientes para agradar a las muchachas ¿Nosotros de qué servimos?"  
+Pero Egoavil no era manco. Una mañana los pastores de "La Florida" entraron en Rancas llorando detrás de un rebaño de vacas que mugían lastimeramente. Las vacas parecían cuyes: no tenían rabo. Así empezó la violencia. Oveja que encontraban las cuadrillas era oveja pisoteada. Y pasó peor: una madrugada tres pastores se calentaban delante de una fogata de bosta. La neblina era espesa. Se entibiaban al pie de una ladera cuando crepitó una carcajada. Se levantaron alarmados mientras una pelota rodaba hasta sus pies. Se acercaron: era la cabeza de Mardoqueo Silvestre.  
+La gente comenzó a ralear. Los últimos que se atrevían a pelear, volvían arrastrándose. En vano el Personero tocaba las puertas obstinadas. A fines de septiembre ni los valientes osaron combatir. Un día los caporales vinieron con uniformados. Un pelotón de la Guardia Republicana escoltó, desde entonces, a la ronda. Atacarla era atacar a la Fuerza Armada. Egoavil entró en Rancas acompañado de tres guardias republicanos, ostentosamente recorrió la calle, taconeó en la plaza y entró en la cantina de don Eudocio.  
+—Una docena de cervezas para los señores guardias —gruñó recostándose en el mostrador.  
+Hubo que servirle.  
+En la vastedad de los campos clausurados sólo quedó Fortunato.  
+En casetas de madera apresuradamente construidas por los carpinteros de la "Cerro de Pasco Corporation", la Guardia Republicana colocó centinelas, cada kilómetro. Nadie se atrevió a atacar.  
+Nadie salvo Fortunato.  
+Cuando Egoavil, el gigantesco hijo de puta, jefe de los caporales, miró al único adversario de "La Compañía" la risa casi lo derribó de la silla. Se carcajeó hasta las lágrimas y se alejó. Pero al día siguiente la ronda tropezó, de nuevo, con el viejo. En su aplastada cara ardían dos candelas. El viejo divisó a los jinetes y les soltó un hondazo.  
+Desmontaron y lo molieron a puñetazos. Fortunato volvió arrastrándose. La madrugada siguiente, insistió. Egoavil mandó tallarlo a latigazos. El *Cara de Sapo* —así lo llamaba Egoavil— se retorcía como culebra, pero no gritaba.  
+Cuando los látigos lo desdeñaron tenía los labios mordidos.  
+—¡Si quieres, vuelve mañana por el vuelto! —gritó Egoavil.  
+Volvió. Regresó a Rancas igualito al San Sebastián de la iglesia de Villa de Pasco. Un camino de cuatro kilómetros le demoró tres horas. Entró dejando un reguero de sangre.  
+—No insista, don Fortunato —le suplicó esa mañana Alfonso Rivera—. Usted solo no puede. Uno solo no puede pelear contra quinientos.  
+—Te matarán, papacito —sollozaban sus hijas—. Vivo nos sirves; muerto, no nos traerán ni agua.  
+—Solo no puedes, Fortunato —insistió Rivera.  
+No contestó. Siguió peleando. Día tras día salía a enfrascarse en las inútiles peleas. Para los caporales no era un combate, era un diversión. Los barbajanes se lo rifaban. "No le pegues muy duro, hay que conservar a nuestro sapito", se burlaba Egoavil. El viejo seguía acudiendo a la cita. Caía y se levantaba. No cedía. Era como esos tentetiesos que, doblados en cualquier dirección, siempre vuelven a quedar erectos. Maltratarlo era una rutina que dependía de los humores de Egoavil. Así, al amanecer de la noche en que la *Culoeléctrico* lo desairó públicamente después de bebérsele una botella de anisado *Poblete*, Egoavil quiso quitarse esa mosca del ojo. Ocho jinetes clausuraron un círculo alrededor de la palidez del viejo. Una hora se lo cedieron, uno a otro, a puntapiés y puñetazos. Fortunato se tambaleaba mareado; su cara era una máscara desportillada. Cuando lo soltaron, no se le veían los ojos. Se derrumbó como un saco vacío.  
+Se quedó tirado sobre el pasto, jadeando, cara al cielo, con la boca abierta. Unos arrieros lo recogieron al mediodía: entró en Rancas vomitando. Se tiró lacio en su jergón tres días con la verde-amarilla-morada cara cubierta con pedazos de carne fresca. El cuarto día se levantó. La quinta madrugada salió, de nuevo, a enfrentar a la ronda. Encontró a Egoavil cambiado. Esta vez no descendió ningún jinete.  
+—¡Váyase, Fortunato, lárguese! —le gritaron, alejándose.  
+El viejo quiso perseguirlos a pedradas, pero se lo prohibieron su debilidad y el trote de los bastardos.  
+Egoavil había comenzado a soñarlo. Fortunato lo perseguía en sueños. Se le aparecía todas las noches. En su soñera vagaba por un desierto, más allá de toda fatiga, cuando oyó una voz; alamardo, Egoavil apresuró el paso, pero lo silbaron de nuevo. ¿Quién podía nombarlo en esa planetaria soledad? Siguió huyendo de la voz implacable. Sólo leguas más allá reconoció aterrado que el hablador era su caballo; se descabalgó tiritando para descubrir que el cuartago tenía la tumefacta, la anaranjada cara de Fortunato. Y soñó también que encontraba en su dormitorio un retrato de viejo. Enloquecido, arrancó el rostro odiado sólo para descubrir que era un calendario atroz y que debajo de cada cara arrancada surgían cientos de rostros del viejo: Fortunato riéndose, Fortunato sacándole la lengua, Fortunado llorando, Fortunato guiñándole los ojos, Fortunato con la cara azul, Fortunato con la cara agujereada, Fortunato granizado. Y soñó peor: Fortunato se le apareció crucificado. Lo ensoñó como un Jesucristo clavado en una cruz. Los fieles de Rancas, los devotos de toda la tierra, seguían el anda rezando. El crucificado vestía los mismos pantalones sebosos y la deshilachada camisa del viejo; en lugar de la corona de espinas, lucía su sombrero rotoso. Nítidamente Egoavil distinguió la cara hinchada. El crucificado, el Señor de Rancas, aparentemente, no padecía; de tiempo en tiempo descolgaba un brazo y se llevaba a la boca una botella de aguardiente. Egoavil avanzó tras el anda temblando, con una vela en la mano, queriendo ocultarse, pero el crucificado lo reconoció y le gritó: "¡No se me corra, Egoavil! ¡Mañana nos veremos!", guiñándole un ojo tapiado por una amarilla, atroz putrefacción. Se despertó gritando.  
+Calmosamente, sentado en una roca, el viejo se remangó la camisa. Egoavil sintió la boca de paja.  
+—¡Don Fortunato! —enronqueció desde el caballo—. Yo sé de sobra que usted es un macho. —Y su mano despectiva abarcó la ronda silenciosa—: Aquí no hay ningún varón como usted. Ninguno de estos huevones es tan hombre como usted. ¿Para qué seguir esta pelea? Usted solo no puede nada, don Fortunato. "La Cerro" es poderosísima. Todos los pueblos se han echado. Usted es el único que insiste. ¿Para qué seguir, don Fortunato?  
+—¡Baja o te bajo, cabrón! —gritó el *Cara de Sapo*.  
+—Por favorcito, don Fortunato, no me insulte.  
+—¡Hijo de puta por parte de madre!  
+—No queremos pegarle. Si usted no se presenta por aquí, ya no volverá la ronda.  
+—¡Hijo de puta por parte de padre!  
+Egoavil recorrió los rostros tensos de la ronda, entrevió la faz de Cristo, sintió el sudor de la soñarrera y saltó del caballo. Se trenzaron. Fortunato atacaba con rabia, con puñetazos de mula. Egoavil respondía con golpes de lana.  
+
+# 19 Donde el lector se entretendrá con una partida de póquer  
+
+El Juez Montenegro viajó a El Estribo. El sanitario Canchucaja, el escribano Pasión, Arutingo, el sargento Cabrera y un piquete de guardias civiles escoltaron al magistrado. Don Migdonio mandó esperarlo con espléndidas pascanas. Cada seis horas les cambiaban los caballos y las pachamancas. Cinco días después atravesaron el arco de piedra donde colgaba, hacía cincuenta años, el estribo de plata del abuelo de don Migdonio. Vestido de pantalón de montar, casaca de cuero, botas inglesas y riquísimo pañuelo de seda, don Migdonio dio la bienvenida a la "ilustre comitiva" un tanto amedrentada por la enormidad de la casa-hacienda.  
+Era un caserón de cien metros de largo, salpicado de puertas y ventanas descoloridas. El abandono liquidaba el propósito de los constructores. El patio empedrado se rendía también a la hierba. Harapientos fantasmas, peones sin rostro, emergieron de las boñigas. Cruzaron el patio y penetraron en el comedor aún prestigiado por antiguos muebles ingleses que sufrían entre paredes cuajadas de calendarios. Los esperaba una comida grandiosa. Horas después seguían bebiendo los aguardientes y los ponches. Esta vez estaban invitados porque normalmente, con excepción del doctor Montenegro, invitado de honor de todas las reuniones, los notarios y guardias civiles se adherían, sin trámite, a todas las celebraciones. Sólo a las seis de la tarde, el doctor Montenegro se animó:  
+—Espero, don Migdonio, que usted me concederá unos minutitos.  
+Se encerraron en el despacho. Lo que don Migdonio de la Torre y don Francisco Montenegro conversaron durante los siguientes sesenta minutos se desconoce, como se ignora lo que San Martín y Bolívar parlamentaron en Guayaquil.  
+—¿Me permite, sargento? —llamó el doctor Montenegro desde la puerta, una hora después. El sargento colocó en la mesa la copa de coñac y penetró en el salón. Lo que don Migdonio, el doctor Montenegro y el sargento Cabrera discutieron, permanece también en el misterio como en neblina histórica permanece lo que Napoleón y Alejandro I discutieron en la celebérrima balsa.  
+—¿Me permite, amigo Canchucaja? —llamó una vez más el doctor Montenegro, definitivamente domiciliado en el universo de los enigmas históricos. Y aquí las versiones se contradicen. Ciertos cronistas sostienen que las entrevistas no duraron horas, sino días, y que en vez de celebrar un cónclave, las autoridades viajaron a las lindañas de la hacienda. Para desmentir a los testigos que juran que vieron salir a las autoridades abrazadas y entre risas, los historiadores exhiben una prueba irrefutable: esa noche —¿era noche, era día?— las autoridades confirmaron que Félix y sus catorce compañeros habían sido fulminados por un "infarto colectivo". ¿Podía establecerse el suceso sin un cuidadoso examen? Es inimaginable. Así razonan ciertos historiadores y concluyen que las autoridades ganaron, en penosas jornadas, los brumosos límites de El Estribo. Sea como fuere, el dictamen del doctor Montenegro fue categórico: los peones habían sido segados por el primer infarto colectivo de la historia de la medicina. El doctor Montenegro confirmó que los débiles corazones de los caballerangos no resistieron a las alturas del poder; corazones acostumbrados a trotar a cinco mil metros fueron despedazados por la emoción de sentarse en los sillones de la sala de El Estribo. La provincia triunfaba. El privilegio de la desconcertante novedad médica, negada a las cosmópolis, recaía en una humilde pero sincera provincia peruana. El genio no escoge únicamente a las grandes naciones para revelarse.  
+*Por un zazino, por Lunanco, me enemisté con el Juez Montenegro. Poco después que la propietaria de Huarautambo, doña Pepita Barda, se casó con el doctor Montenegro, los caporales capturaron a Lunanco. Yo seguí la huella y llegué a la hacienda: Lunanco relinchaba en el coso.  
+—¿Por qué arrearon mi caballo?  
+El guardián se humilló.  
+—Es orden del doctor agarrar a los animales dañeros de sus pastos.  
+—No pastaba en la hacienda.  
+—Yo no sé, don Héctor. Hable useted con los patrones.  
+Me fui a la casa casa-hacienda y pregunté por el doctor. Me hicieron pasar al patio. El doctor Montenegro leía un periódico sentado.  
+—¿Cómo estás Chacón?  
+—Yo estoy bien, pero Lunanco está mal.  
+El doctor arrugó el entrecejo.  
+—¿Quién es Lunanco?  
+—Un mi caballo retenido en tu pesebre.  
+—Habrá hecho daño.  
+—No es tu pasto, doctor. Es mi propio pasto.  
+El juez me miró con los ojos atravesados.  
+—Yo no sé nada. Lo único que sé es que ustedes abusan de mis pastos.  
+—Pero, doctor...  
+El Juez se paró.  
+—¡Nada, no quiero saber nada! ¡Lárgate de aquí, cholo de mierda!  
+Salí con tizones en el corazón y me fui a la provincia. Esa misma mañana presenté mi queja a la Subprefectura. No me atendieron. "La Autoridad —dijo don Arquímedes Valerio— no puede resolver problemas privados. Esta disputa es privada. Y no puedo arreglar eso."  
+Volví a Huarautambo y el corazón se me cayó al suelo: los caporales habían capturado mis otros caballos: Alazán, Castaña, Canela, Rosada y mi yegua Huicharamay (así se llamaba porque lloraba cuando se alejaba de los otros animales), sufrían en el coso. Los caporales nunca soltaban los animales sin cobrar los "daños": cien soles por animal. Mientras no se pagaran los perjuicios, los animales se quedaban sin comer ni beber. ¡Cuántos animales salían a morir!  
+Me rendí al mayordomo Palacín.  
+—¿Por qué me abusas, don Máximo? ¿Qué voy a hacer? Yo soy un miserable.  
+—Tú eres muy alzado, Chacón. El doctor quiere que aprendas.  
+—¿De dónde sacaré trescientos soles?  
+—El daño importa ochocientos, Héctor.  
+Yo tenía solamente diez soles: compré una botella de aguardiente y me abatí.  
+—Haz algo por mí, don Máximo.  
+—Tú eres muy altanero, Chacón.  
+—¡Sírvete y perdóname, señor Palacín!  
+—No puedo perdonarte. Hay orden estricta de apretar los tornillos.  
+Supliqué y supliqué, mientras Palacín terminaba mi botella.  
+—No tengo ochocientos soles. Jamás en la vida he tenido ochocientos soles. Nunca tendré.  
+—Puedo aceptarte un caballo.  
+¿Qué podía hacer? En lugar de perder cinco, salvaría cuatro.  
+—¿Qué caballo quieres?  
+—Quiero ese zaino. —Y señaló a Lunanco.  
+—Ése no, señor Palacín. He llegado a querer mucho a ese animal, ése no.  
+Fue en vano: no pude salvar a Lunanco.*  
+La Corte Superior ratificó el dictamen del Juez. Don Migdonio decidió viajar a la provincia para agradecer "las atenciones brindadas al suscrito". Cuando por boca de uno de los peones de El Estribo, el doctor Montenegro supo que don Migdonio, único varón capaz de embarazar a siete mujeres el mismo día, se movilizaba a Yanahuanca antes que nada dispuso que doña Pepita ordenara una emorme mortandad de cerdos, cabritos y gallinas. Con excepción del senador, un amanuense afortunado, ningún personaje de tales campanillas había ennoblecido con su visita a la provincia. Las esposas de los notables agotaron los afeites que se aburrían en las casas de comercio. ¿Quiénes serían invitados? Mientras el doctor Montenegro, más sumido que nunca en sus solitarios recorridos, se sumergía en la gravedad de sus pensamientos, padecieron los notables. Por una vez se equivocaron: el doctor invitó a todos los vecinos presentables.  
+Salieron a una legua para recibir al prócer. Don Migdonio de la Torre y Covarrubias del Campo del Moral entró a Yanahuanca al atardecer; sus rojizas patillas a lo Mariscal Sucre y su escultórica barba de cobre acabaron por enajenar al pueblo. Atravesaron entre aplausos las calles barridas por los presos. Por ordel del sargento Cabrera los guardias esperaban marcialmente alineados delante del puesto. El barbitaheño don Migdonio de la Torre y Covarrubias del Campo del Moral oteó a la ruborizada doña Pepita y lanzó, desde lejos, un principesco sombrerazo, se descabalgó y le besó la mano. El doctor Montenegro, que desconocía tales refinamientos, vaciló en la cacha de su pistola; sacudió su alma el mismo huracán de sentimientos que dicen que arrasó el ánimo de un General Presidente de la República, el día en que, a poco de su cuartelazo, un embajador acercó sus labios a la robusta mano de la Primera Dama. Conociendo los celos del dictador, la Generala quedó tan espantada que sólo atinó a gritar "¡Apolinario, Apolinario!".  
+Esa noche comenzaron los festejos. Por la casa del doctor (los patios hervían de acémilas cargadas de "regalitos" traídos por los peones de El Estribo) desfilaron las autoridades y los notables perfectamente lavados y peinados. (*Glostora* no se conseguía ni para remedio.) Todos lucían camisas nuevas. El Subprefecto, don Arquímedes vestía un traje azul de ceremonia, reservado a los aniversarios patrios, y lucía una corbata roja. El inocente lujo, andando los años, causaría su ruina. Los azares del servicio lo destacarían a otra provincia donde las envidias lo acusarían de extremista; a los ojos del Prefecto, que no lo tragaba —el Subprefecto no conseguía organizar un burdel en la provincia, decepción que privaba a su superior jerárquico del cumplimiento de un sueño: contar con un prostíbulo en cada circunscripción—, la corabata escarlata sería la prueba de su comunismo furibundo: perdería el puesto y moriría olvidado. Incapaz de antever las turbulencias del porvenir, el Subprefecto se acercó orondo a saludar a don Migdonio de la Torre y Covarrubias del Campo del Moral.  
+El Juez había llegado al extremo de mandar barrer toda la casa y hasta de fregar el piso con petróleo, olor que se confundía con las fumarolas que exhalaban las axilas de las matronas sudadas por el esfuerzo de cargar a sus retoños. Los mocosos —verdaderamente ostentaban narices taponadas por costras de moco— anulaban con sus chillidos los musicales arrestos del perrito de la R.C.A. Víctor.  
+*Te han visto por Orrantia  
+andando en un cochazo;  
+será del blanquiñoso  
+que ahora tenés.*  
+Autoridades y notables zapateaban sobre el aserrín rociado para evitar que los invitados resbalaran sobre el petróleo. Fue la más despampanante jarana perpetuada en Yanahuanca. Hacia el amanecer, cuando los notables ya no resistían el peso de las piernas, don Arquímedes propuso:  
+—¿Por qué no jugamos una partida de póquer?  
+—Encantado —aceptó don Migdonio, que comenzaba a aburrirse.  
+*Y como las desgracias nunca vienen solas, unas semanas después mi compadre Polonio Cruz me encomendó sus caballos. Por mi mala suerte me volví a descuidar y los caporales se volvieron a llevar los caballos. Fui nuevamente a reclamar a Huarautambo. No me atendieron. Esta vez se quedaron con un caballo de mi compadre. "Tú eres el responsable", me dijo don Polonio, dolorido. Y era verdad: yo era el culpable. Y le pagué a mi compadre con una yegua llamada Gallinaza, un animal que don Polonio llegó a querer.  
+Y pasó peor: por mejorar mi suerte sembré una tierra abandonada llamada Yanaceniza; sembré diez sacos. Escogí bien la semilla. Hay muchas clases de papa: la papa amusqueña, arenosa, incomparable, para la mesa; la papa amarilla, buscada por los negocios; la papa shiri, la mejor para chuño; la papa blanca, que se reserva para los gastos de la casa; amorosamente escogí por su tamaño y sus buenos colores las semillas. La tierra me agradeció. La papa hermoseó. Era una maravilla verla florear en abril. Y me sucedió una desdicha: una noche una tropa de animales destrozó mi papal. ¡Qué mala suerte! La noche siguiente el mismo ganado volvió a invadir mi chacra. Desesperadamente intenté contener el ganado a pedradas. No pude. Y entonces capturé a un pastor.  
+—¿Por qué haces eso? —le pregunté.  
+—El doctor ordena botar aquí los animales —bajó la cabeza—. Nosotros mismos estamos doloridos, don Héctor.  
+Bajé a la provincia desesperado y me fui directamente a la casa del doctor. El juez salia.  
+—Doctor, ¿me permite una palabrita?  
+El doctor siguió caminando.  
+—¿Es sobre daños?  
+—Sí, doctor.  
+Se detuvo un instante antes de seguir.  
+—Tú eres muy liero, Chacón. Es la tercera vez que me molestas. ¿No sabes que yo no me ocupo de esas cosas? Habla con la señora Pepita.  
+Doña Pepita, la propietaria, es una mujer que se vale de su sexo para infamar a los cristianos; su boca ofende y apesta más que la de un borracho. Pedí hablar. No se pudo. Estaba en su altillo contando sus platerías, sus lanas. Esperé toda la mañana. Por fin se mostró al mediodía. Bajó al patio.  
+—¡Cristina, Añada! —llamó.  
+Dos sirvientas salieron agitadas.  
+—Vengan a escarmenarme.  
+Las muchachas corrieron a sacar dos sillas. La señora Pepita se sentó en una y la muchacha se sentó en la otra.  
+—Habla pronto. Estoy apurada —me dijo la señora Pepita metiendo la cara bajo la mata de sus cabellos.  
+—¡Doña Pepita, tus animales están acabando mi papal!  
+La escarmenadora me miró con ojos hermosos; la conocía desde niña; una vez le regalé una trucha, una vez...  
+—¿Quién te ha dicho que es tu papal, cholo de mierda?  
+—Yo he sembrado Yanaceniza, señora.  
+Levantó la cabezaz colérica.  
+—¿Por qué sembraste allí, cojudo?  
+—Es una tierra abandonada. La comunidad me dio permiso.  
+—¿Y quién es la comunidad para darte permiso? Me cago en la comunidad. En esta provincia no hay tierra abandonada. Toda tierra es mi pasto.  
+—¿Cómo van a ser tus pastos? Nadie siembra en esas tierras desde mis abuelos.  
+Se levantó nuevamente la mata negra.  
+—¡Me alegro! —gritó—. ¡Me alegro que mis animales acaben con tu chacra! Tú eres un cholo insolente, un indio de mierda. Como peor te portes, peor te irá. Tú no entiendes palabras. Eres terco. Ya verás lo que te ocurre.*  
+Se prepararon las mesas. Don Migdonio de la Torre y Covarrubias del Campo del Moral, el doctor Francisco Montenegro, el Subprefecto Valerio y el Alcalde, don Herón de los Ríos, se sentaron a timbear. A la segunda mano se les esfumó el sueño. En la tercera el Pata de Cabra le sopló al doctor Montenegro a retrucar una apuesta. Don Migdonio de la Torre y Covarrubias del Campo del Moral, que escondía una escalera al trece, se indignó. Se encresparon los ánimos y elevaron las apuestas a cinco mil soles: se los enbolsicó el doctor. Se enfrascaron en los furores de las tres cosas. No pararon hasta las ocho de la mañana. Los interrumpieron para servirles un aguadito de pato. A don Migdonio de la Torre y Covarrubias del Campo del Moral le supo a ortiga: perdía once mil soles. Tirano de su miedo al Mal de Ojo era su avaricia. Era tan cicatero que por no perder diez soles era capaz de cavar de noche, violeta de pavor, en un cementerio. Proclamando lo agradable-que-es-alternar-con-los-amigos se negó a terminar la simpatiquísima partida. Descabezaron un sueñecito en las habitaciones y reiniciaron, a las once, la partida. Jugaron toda la tarde y la noche, que agrava a los enfermos, le mejoró la suerte a don Migdonio de la Torre y Covarrubias del Campo del Moral. Cuando los interrumpieron con las suntuosidades de un ají de gallina, verdadera capilla sixtina de la cocina criolla, el doctor Montenegro perdía catorce mil soles. El magistrado fue quien se extendió en las alegrías de hospedar a los amigos. Maldecía la ocurrencia de don Arquímedes. Reiniciaron la partida, fue avanzando la noche y el Subprefecto se le apareció con tintes menos sombríos; al alba, cambió de opinión: dieciocho mil soles se amontonaban delante de una escalera al as. Esta vez fue don Migdonio de la Torre y Covarrubias del Campo del Moral quien se prolongó en el elogio de los placeres de la amistad. Descabezaron un sueñecito y recomenzaron, a las doce, la partida.  
+Jugaron noventa días seguidos.  
+*Me mordí las manos para no desgraciarme.  
+Salí. El sol rajaba la plaza. Pasaron unos niños corriendo. Un perro los siguió colérico. Ellos se volvieron y el perro huyó. Así era yo: un perro que huía cada vez que los hacendados me volvían la cara. Sentía la boca de madera. Fui a la tienda de don Glicerio Cisneros. ¿Y a quién encuentro? Salomón Requis, el Agente Municipal de Yanacocha, y Abraham Carbajal bebían un cuartillo. Los vi y me abalancé.  
+—¡Tú no vales como autoridad! —grité mientras le pegaba puñetazos a Salomón.  
+—¿Qué te pasa Chacón?  
+—¡Tú ves que me abusan y no haces respetar! —Lloraba.  
+Requis se limpió la sangre de la boca.  
+—¡Tú tienes razón, Chacón! ¡Nosotros no valemos nada!  
+—Tómate esta copa, hermanito —dijo don Glicerio—. Toma esta copa gratis.  
+—Carbajal tiene razón. Nosotros no valemos nada. El Juez nos tiene pisados.  
+—¿Por qué no arreas las reses de Montenegro la próxima vez que dañen tu chacra?  
+Nadie se había atrevido nunca a capturar los animales de la hacienda Huarautambo.  
+¡Arréalos al coso! Ya veremos las autoridades. Bebí.  
+—Perdóname, señor Requis.  
+—Salud, Chacón.  
+Hablé con mis vecinos Santos Chacón y Esteban Herrera, que estaban muy asustados con los avances de la hacienda. Nos preparamos para la llegada de los animales. La noche siguiente encuentro los animales dañosos en mi papal y llamo a gritos a Santos Chacón y a Esteban Herrera. "Ayúdenme a arrear estos animales al coso", les suplico. A hondazos arreamos quince reses de Montenegro.  
+Las condujimos al coso de Yanahuanca.  
+—Señor Agente Municipal —le digo a Requis—, hace ocho días que estos animales destrozan mi papal.  
+—Presenta una denuncia para valorizar tu pérdida.   
+—¿Se quedan presos?  
+—Se quedan presos mientras se falle tu daño.  
+—Gracias, señor Agente.  
+Y en eso aparecen dos guardias civiles y me encañonan con sus revólveres. Requis palidece.  
+—¿Adónde vas?  
+—He traído unas reses para justificar mis daños, señores guardias.  
+—Hay una denuncia contra ti. Tú has robado esas reses del doctor Montenegro.  
+Yo volteé para llamar a los testigos. Ya no estaban.  
+—Son animales dañosos, son animales que...  
+—Tú has robado esas reses. Acompáñanos. Usted también, Requis.  
+—Yo no sé nada —tartamudea Requis—. Él trajo los animales. Yo no sé nada.  
+—Está bien. Entrega los animales a los pastores de la hacienda y vete.  
+—Gracias, señores —se rinde Requis.  
+—Usted, Chacón, nos acompaña.  
+Me retuvieron siete días. El martes siguiente me sacaron del calabozo y me llevaron a la casa del doctor Montenegro.  
+—Está bien —dijo el doctor—, retírense.  
+Los guardias saludaron.  
+—Chacón —me dijo—, tú eres muy sabido. Tú no toleras nada. ¿Por qué has arreado mis animales?  
+—¿Por qué has perjudicado mi papal, doctor?  
+El doctor me señaló con su dedo:  
+—¡Esta vez te perdonaré, pero la próxima te quedarás en la cárcel siete meses! ¿Me oyes, mierda?  
+—¿Por qué dañaste mi papal? ¿Con qué voy a vivir? ¿Qué voy a comer?  
+—Vea usted la forma. Busque otros sitios. Yanaceniza es mío.  
+Subí a Yanacocha. Don Abraham Carbajal se asombró de verme en libertad.  
+—¿Cómo saliste, Héctor?  
+—Con los pies, don Abraham.  
+Mi padre me abraza y mira a las autoridades.  
+—Ustedes, las autoridades, no valen nada —dice mi anciano y escupe.  
+—El Juez es autoridad superior —se contrista Carbajal.  
+—Valen menos que el estiércol de los caballos —repite mi anciano.  
+—El Juez —se arrebate Requis— está listo a encarcelarnos a todos. No se puede hacer nada. Fuerza es fuerza.  
+—Oiga, Agente —le digo—, el Montenegro me ha advertido que no puedo sembrar en Yanaceniza. Si insisto me condenará de por vida a la cárcel. ¿Dónde voy a vivir?  
+—La comunidad te dará otra cancha para vivir, Héctor. Te fijaremos una altura por Quinche.  
+—¡Vamos! —mi anciano.  
+En el camino le pregunto a mi viejito:  
+—¿De dónde salieron los hacendados, papá?  
+Mi anciano siguió caminando.  
+—¿De dónde vinieron?  
+Nos paramos.  
+—¿Por qué hay patrones? ¿Por qué hay patrón en Huaracautambo, papá?  
+Mi anciano se sentó en una piedra del camino y me respondió.*  
+Doña Pepita seguía el desafío escandalizada. Ni el doctor ni el hacendado se resignaban a perder. Se extraviaron en los laberintos de las escaleras reales. De la mesa se apartaban sólo para lavarse a dormir porque yantar, yantaban en el mismo salón patinado por el humo de generaciones de cigarrillos. Privada de las luces de sus más excelsos funcionarios, la provincia languideció. Telegramas y oficios envejecían en los escritorios. Quince días después de iniciada la partida, un poco asustado por la dimensión de la partida, el secretario del doctor Montenegro, el escribano Santiago Pasión, se atrevió a meter la cabeza en el humo de la habitación.  
+—¿Qué pasa, amigo Santiago? —preguntó de buen humor el doctor Montenegro: ganaba veinticuatro mil soles.  
+—Mil perdones, caballeros —se atarantó el escribano.  
+—Diga no más, don Santiago —le alentó el doctor.  
+—El señor Senador se interesa en el detenido Egmidio Loro. Ha mandado un telegrama, doctor.  
+—¿Quién es ése?  
+—Un ladrón de gallinas.  
+—¿No interrumpiremos la partidita? —se inquietó don Migdonio de la Torre y Covarrubias del Campo del Moral.  
+¿Por qué no lo juzgan aquí? —sugirió Arutingo.  
+Don Migdonio suspiró. Cinco minutos después Egmidio Loro, acusado de robar cuatro gallinas, compareció en el patio. Y quiso su buena suerte que lo juzgaran cuando los naipes favorecían al Juez.  
+—¿Eres culpable o inocente? —preguntó el Juez hojeando el expediente.  
+—Cómo usted guste, doctor.  
+El doctor se carcajeó.  
+—¿Cuánto tiempo llevas en chirona?  
+—Ocho meses, doctor.  
+—Libre —sentenció el magistrado.  
+Así se acostumbraron a solucionar los problemas, en el patio, en las intermitentes pausas del juego. Animados por la suerte de Loro otros reos solicitaron su juzgamiento. No salieron tan bien librados. Muchos comparecieron cuando las cartas le volteaban la espalda al doctor Montenegro: Marcos Torres, acusado del robo de un saco de alfalfa, esperaba descontar el delito con sus seis meses de carcelería; lo gratificaron con tres más. "¡Ni que fuera embarazada!", murmuró y se ganó otros seis. Pero no todas las actividades de la provincia podían solucionarse en el patio. Hubo que suspender el baile que "Club Once Amigos de Yanahuanca" organizaba para adquirir uniformes para el equipo de fútbol.  
+*Esa misma tarde les notifiqué a Sulpicia, Añada y a Santos Chacón.  
+—Montenegro ordena que abandonemos Yanaceniza.  
+—¿Cómo abandonaremos una tierra arañada con nuestras uñas? —palideció Sulpicia.  
+—¿Por qué vamos a salir? —se desmoralizó Santos Chacón.  
+—Moriremos en nuestra tierra —se amargó Sulpicia.  
+—¡No salgas, Héctor! Si usted sale de la cancha, nosotros quedaremos abandonadas —dijo la señora Añada.  
+—¿Quieres resistir?  
+—Yo estoy dispuesto a resistir hasta mi muerte —dijo don Esteban.  
+Nos decidimos a pelear. Vigilábamos de noche y dormíamos de díal, por turnos. Sulpicia, doña Añada, Santos Chacón, don Esteban y yo nos caíamos de sueño, pero no dejábamos el papal. Así, vigilando día y noche, salvamos el sembrío. La papa floreó hermosa. En mayo ondeaba su flor linda. Un día jalamos algunas plantas para probar. ¡Qué maravilla! En una sola planta contamos hasta ciento veinte papas. ¡Ciento veinte! Los caporales miraban la papa codiciosamente.  
+—¡Qué linda papa tiene Chacón! —alcahueteaban al doctor Montenegro—. ¡Qué hermosa papa saben dar esos sitios!  
+Él dijo:  
+—Esos lugares debemos aprovecharlos nosotros, procuren botar a Chacón.  
+Una tarde, cuando Sulpicia dormía rendida, caporales bien ensillados notificaron a la gente:  
+—¡Estas papas, sin faltar una sola, las cosechará Huarautambo!  
+—Este papal pertenece a Héctor Chacón —alcanzó a decir don Esteban Herrera antes que le cruzaran un fustazo.  
+La señora Sulpicia se despertó.  
+—Es muy difícil que don Héctor pueda soltar su papa. Él morirá con su papa. ¡No sólo él morirá!  
+—Chacón es un cero, no tiene nada que ver —dijo el mayordomo Palacín.  
+Me supo amargo.  
+—La gente se reirá de nosotros —se quejó Sulpicia—. Si nos jaláramos un pelo por cada abuso, ¿nos quedaría pelo?  
+Ese día volvimos a recordar sus avances, sus altanerías, sus abusos.  
+—¡Ya veremos si Montenegro es el único hombre de esta provincia! —dije.  
+—No te vayas a desgraciar, don Héctor —dijo Sulpicia mirándome.  
+No contesté. Monté mi caballo y me fui a Huarautambo. El mayordomo Palacín me miró soprendido. Ni me preguntó por qué había cruzado el puente sin permiso.  
+—Perdone, señor Palacín, la molestia. He oído que usted fue a Yanaceniza para notificar que la hacienda cosechará mi papa.  
+—Sí, es verdad, Hec´tor. El doctor Montenegro nos ha ordenado cosechar.  
+—¡Yo quiero que todos los huarotambinos vengan a cosechar mi papa! —grité.  
+—Chacón, por favor no grite, me compromete.  
+El señor Palacín, muy hombre para los caballos, temblaba con la sombra de Montenegro.  
+Yo me descontrolé.  
+—¡Quiero que ahora mismo venga el hacendado a sacar todas mis papas!  
+El señor Palacín se desmayaba.  
+—¡Chaconcito, cuidado, no te oiga la señora! ¡Está contando sus cubiertos!  
+—Yo quisiera que ustedes vinieran con todos sus animales a pisotear mis plantas.  
+—Chaconcito, por favorcito, el doctor le va a escuchar.  
+Yo caracoleaba en mi caballo, en el patio, gritando.  
+—Yo quisiera que vinieran ahora mismo a Yanaceniza para que me conocieran. ¡Vengan! Pronto me conocerán. ¡Así sabrán quién es Chacón! ¡Ustedes cosecharán cuando yo me muera! ¡Yo quiero que ahora mismo vengan a cosechar!  
+Me fui loco de lágrimas. En la bajada, cerca de Yanahuanca, encontré a don Procopio Chacón y a don Néstor Leandro. Me acerqué a Procopio y le dije: "Sobrino, ya faltan pocos días para luchar a muerte."  
+—¿Qué pasa, tiíto? —respondió Procopio.  
+—Ya falta poco para matarnos cuando vengan a cosechar mi papa, cabrones. Ahí verán. Ustedes son mi familia, pero voy a proceder.  
+—No te acalores, Héctor. Esas entradas las hacen los caporales; nosotros también somos pobres.  
+—¡Ahora son pobres, cabrones!  
+—Nosotros no nos metemos —dijo Procopio—. Nosotros también tenemos que llenar la boca.  
+El mes de junio entró con la bulla: "Huarautambo cosechará la papa de Chacón." Yo no dormía. Ignacia y yo mirábamos el techo de la choza.  
+—¿Qué tienes? ¿Por qué no duermes?  
+—Tengo sed.  
+—Ignacia, ¿tienes miedo?  
+—Tengo sed.  
+—Ignacia, el día que cosechen nuestra papa, ¿qué será de nuestros hijos?  
+—¿Para qué sembraste Yanaceniza?  
+—Es un terreno comunal, libre.  
+—Antes comíamos poco, pero comíamos. Ellos tienen su justicia —sollozó—. Ellos hacen lo que quieren.  
+—Mentira trabajamos: no cosecharemos, la gente se reirá.  
+—Lo que más me da pena es la señora Sulpicia.  
+Y me decidí a adquirir una escopeta. Yo no tenía dinero, así que bajé para hablar con el señor Rivas. Un día lo detuve en la calle.  
+—Señor Rivas, quiero hablarle respecto de una escopeta.  
+—¿Para qué quieres tú escopeta?  
+—Para cazar venados.  
+El señor Rivas me midió con la vara de su experiencia.  
+—Tú estás demacrado, Chacón.  
+—Tú sabes que la hacienda Huarautambo quiere cosechar mi papal.  
+—Me da cólera ese abuso. ¿Por qué? ¿Qué derecho tienen? Todos debemos ayudarnos.  
+—Si ustedes me ayudan, la justicia los acusará. No se metan. Preferible yo solo. Necesito su arma. Mi carabina es de una bala y sólo mata uno; la escopeta derrama la muerte.  
+—Está bien, te alquilaré una escopeta.  
+Y cartuchos, ¿puedes venderme?  
+—Son caros.  
+—Te daré un carnero padre. Te gustará. Te dará crías.  
+—Bueno, veinticinco cartuchos, un carnero.  
+Te entregaré un animal competente, un animal que llegarás a querer.  
+Esa misma mañana subí a Yanaceniza con la escopeta. Cuando volvieron los caporales, yo maté ante sus ojos un pájaro. "¡Así morirán, cabrones!", y acaricié la hermosa escopeta. "Esta señorita les chupará la sangre."  
+Total, no cosecharon. Y comprendí que los cobardes no tienen tierra. La papa floreó, maravillosa, papa para dos años. Y contraté cuarenta hombres para recogerla.  
+Hasta que una tarde miré venir al mayordomo Palacín con treinta cabalgados. Avisté la polvareda y comprendí que se volteaba la suerte.  
+El mayordomo Palacín miró el tamaño de mis años.  
+—¡Chacón, se ha sufrido un robo de caballos en estas alturas! Usted debe saber. Usted se viene con nosotros.  
+Y me llevaron preso.*  
+No se atrevieron a desairar a las autoridades. Y se suspendió igualmente un té organizado por doña Josefina de los Ríos. Tres caseríos esperaban festejar ese mes, respectivamente, la inauguración de una pila, la apertura del cementerio y un mástil para la bandera: se quedaron con los crespos hechos. Pero los mayores perjudicados fueron los detenidos. Poco antes de que se entablara la partida, el sargento Cabrera había mandado a pintar señales de tránsito en todas las esquinas. Un día Yanahuanca amaneció cubierta de flechas blancas. Era un capricho dictado por la borrachera del sargento. Los pobladores ignoraban el mismo significado de la palabra "tránsito", pero el sargento que había dispuesto esta transformación en tragos no tuvo más remedio que cumplir sus propias órdenes: veintitrés pobres diablos fueron conducidos al puesto antes que se cancelaran las novedosas disposiciones. No pudo juzgarlos el Subprefecto. "Es evidentemente imposible —dijo Arutingo— llenar los patios de piojosos." Se quedaron en el calabozo todo el tiempo que duró el desafío. Noventa días después un negro chingolo, modesta imitación criolla de la paloma que anunció a Noé el fin de la cólera divina, se posó en la ventana del salón donde envejecían los jugadores.  
+—Es diciembre —dijo don Migdonio—. Pronto no se podrá transitar por los caminos.  
+—Vienen las lluvias —concedió el doctor.  
+—Mejor nos quedamos aquí —suspiró don Migdonio, resignado a perder cuatrocientos soles.  
