@@ -1119,3 +1119,252 @@ El Prefecto, que se dominaba para no abofetear al mequetrefe, recordó su presi�
 —¡Llame al Consejo para que le presten el recogedor de basura!  
 —A mí no me harán caso, señor.  
 —Está bien —dijo el Prefecto Figuerola, resignado—. Está bien. Señor Gómez, llame usted de mi parte al Concejo Distrital y dígales que le presten un camión a estos imbéciles.  
+
+# 21 Donde, gratuitamente, el no fatigado lector mirará palidecer al doctor Montenegro
+
+En la confianza de disponer aún de millares de horas para escgoer entre millares de duraznos, la rechoncha mano del doctor Montenegro seleccionó un melocotón. La pequeña mano de dedos cortos se demoró en la rosada piel del abridor. A tres leguas del aparador donde el Magistrado vacilaba ante la frescura, el Inspector Galarza y las autoridades de la comunidad de Yanacocha voltearon la loma Parnamachay. Héctor Chacón sofrenó a *Triunfante*. En el mismo escalón de roca rojiza, veinte años antes, otro *Triunfante* había metido los belfos en un charco. *Triunfante* no logró beber. Chacón hundió las espuelas. *Triunfante* descendió en un escándalo de piedras. Un kilómetro más abajo la comunidad avanzaba tras sus tambores silenciosos. El Nictálope agitó un pañuelo. Sulpicia contestó ondeando una desteñida bandera peruana. La penetrante dulzura del durazno no convenció al doctor, ahíto por el desayuno. El doctor Montenegro miró las manecillas del Longines. Eran las once y cuarenta y dos minutos de la última mañana de su vida. El escándalo de los perros rajó la lejanía. Se levantó y atravesó la puerta del dormitorio. El Inspector Galarza se deslumbró ante las siete caídas de agua del río Huarautambo.  
+— ¡Qué maravilla! Verdaderamente esta tierra es bendita. —Y se detuvo extasiado sobre la roca blanquinegra donde veinte años el pedorro Arutingo había contado los espantos sufridos el día en que la *Culoeléctrico* le regaló una avispa a la *Nalgapronta*. El Inspector Galarza admiró la mocedad de las siete cataratas. Se volvió y se le nubló la cara: medio kilómetro abajo distinguió la mancha de la comunidad.  
+—Ustedes no obedecen —se amargó.  
+—Perdón, señor Inspector —se disculpó el Personero—. Son caseríos de la otra banda. Estaban citados desde hace siete días. —Se quitó el sombrero—. No hubo tiempo de cancelar la orden.  
+El señor Galarza no quiso enfrentar una descarada desobediencia.  
+—Sigamos —suspiró.  
+El Chuto Ildefonso acercó servilmente la mecedora. El doctor Montenegro se sentó a tomar el sol. Se acercaron los caporales adulones. Sulpicia levantó el pie para rebuscar el picotazo de una espina. Un jinete incendiado por la llamarada de una camisa roja emergió por el atajo.  
+—¡Ahí está el Niño Remigio! —se persignó Sulpicia.  
+—Es necesario —dijo el juez Montenegro abriendo apenas los labios, manchados por la mala educación del durazno jugoso— que esos piojos aprendan, de una vez. Esos yyanacochanos sólo entienden los golpes. —La voz se endureció—. Hoy tropezarán con Montenegro. Hace tiempo que sse sufren robos de ganado por estas alturas. Las autoridades de Yanacocha son los abigeos. Hoy entrarán en la cárcel o no me llamo Montenegro.  
+PPara congraciarse con el Inspector Galarza, el Personero se acomidió a levantar una mata espinosa. La hacienda Huaratambo emergió de las rocas del camino. Era el momento en que un caballo sudoroso descendía por la otra banda y entraba desalado en las caballerizas. Un traje amarillo, opaco de sudor en las axilas, saltó del zaino. Lala Cabieses atravesó los corredores y entró, ahogándose, en el patio empedrado donde el doctor Montenegro se reconfortaba.  
+—¡Doctor, doctor!  
+El traje negro se volvió. Lala Cabieses gritaba sin aliento. En el rostro descompuesto del traje amarillo que avanzaba agitando un papel en la mano, el traje negro reconoció el color de la gravedad.  
+—¡Lea, doctor, lea! —dijo Lala Cabieses alcanzándole una hoja.  
+El magistrado conoció entonces el poder de la literatura. Unas palabras trazadas por un escritor que ni siquiera podía ufanarse de buena letra o correcta ortografía (no se reconocía la palabra "huye" desprovista de "h"); unas pocas líneas borroneadas por un artista que acaso jamás rebasaría la oscuridad de su provincia, lo conmocionaron hasta la palidez. Allán, en los años en que la pobreza lo obligó a transitar, en días de universidad, el áspero camino de las bibliotecas, el doctor se había humedecido en las emociones de Vargas Vila. Pero ni *Flor de Fango*, ni *Aura, la de las violetas* lo habían estremecido tanto. Se encenizó. ¿Eran versos? ¿Eran prosa? Fuera cual fuese el fruto de la inspiración del desconocido artista, su obra rebajó al magistrado al mismo color del papel palúdico.  
+—¿Qué pasa, don Paco? —se alarmó Arutingo.  
+Ya la cabalgata divisaba la arboleda de la hacienda. Los perros mordían la bienvenida. La multitud atravesó los árboles castigados por los dientes de un invierno prematuro.  
+—¡Héctor! —gritó Fidel y le alcanzó un costalillo mugroso a Chacón.  
+Sus ojos eran dos ascuas. Los del Niño Remigio calentaron desde lejos la mano del hombre que se proponía inflingirle la muerte.  
+—¡Héctor! —repitió ronco, Fidel—. ¡Que te vaya bien!  
+Los montados se arremolinaron, se mezclaron las cabalgaduras cansinas.  
+—Ustedes agarren los fusiles de los guardias civiles —dijo Chacón, levemente pálido—. No los dejen disparar.  
+Melecio de la Vega miró la cabeza de Héctor Chacón tostada por el doble fuego del mediodía y de su cólera y se le estremeció el corazón. "Nunca olvidaré a Chacón", pensó.  
+—¿Qué pasa? ¿Por qué no avanzan? —preguntó el Inspector alanceado por presentimientos. En los rostros deshabitados, en el pedregal del silencio, donde sólo se hospedaban relinchos y ladridos, descubría un malestar.  
+—El puente está cerrado —dijo el Abigeo. Hacía nueve noches había soñado el puente pesado de los muertos. Sentados en extrañas posturas o despatarrados por las descargas, los cadáveres miraban el cielo con los ojos vacíos. Sofrenó el caballo menos sudado que sus manos.  
+—¿Quién tiene la llave? —insistió el Inspector.  
+—El doctor Montenegro ha mandado cerrar el portón. No hay paso —informó el Chuto respetuosa, torvamente.  
+—¡Apártense! ¡Salgan del puente!  
+La voz del Nictálope soltó un vuelo de invisibles lechuzas. El Inspector Galarza quiso replicar, pero chapoteó en los ojos del Nictálope y retrocedió hacia el puente vacío.  
+—¡Apártense! —repitió Chacón y obligó a recular a *Triunfante* y se lanzó contra el portón que clausuraba el puente. La puerta se estremeció. Tres veces Chacón obligó a *Triunfante* a forzar sus pechazos. El portón vaciló. Ése fue el momento en que en la cabeza del Niño Remigio se posó la avispa verde del huayno. La puerta se encorvó. El Abigeo se acomidió a meter una barreta entre los goznes oxidados. Saltó *Triunfante* sore la madera desvirgada y se lanzó al galope por la callejuela. Los hombres lo siguieron. Veinte años antes, Juan, el Sordo, había insultado allí a la fatalidad. La comunidad se vistió de polvareda. Héctor Chacón penetró en la plaza de Huarautambo. En la plaza calva, entre anémicos yerbajos, sorprendió a un solo hombre, Julio Carbajal, el maestro de Huarautambo.  
+—¿Dónde está el doctor? —preguntó Chacón, arrasado por la sospecha.  
+—Ha salido para la cordillera.  
+—¿No sabía que hoy era el comparendo?  
+—Esperaban.  
+—¿Y?  
+—Hace media hora llegó Lala Cabieses.  
+—¿Por dónde?  
+—Por el atajo.  
+—¿Y?  
+—Traía un papel en la mano. El doctor leyó la comunicación y ahí no más mandó salir para la cordillera.  
+—¿Y los guardias?  
+—Salieron con él.  
+—¿Por qué escapa si ha sido notificado? —preguntó el Abigeo. Hacía tres noches había soñado que oyendo el nombre de Chacón el doctor Montenegro palidecía. Lo descreyó. Su cabeza, experta para le husmeo de los sueños, no concebía que el doctor Montenegro alojara miedo a un simple humano.  
+—¡Que lo alcancen! —gritó el Inspector Galarza, burlado.  
+Los jinetes relampaguearon en las espuelas. No alcanzaron al doctor. Una hora después volvieron los caballos canosos de espuma.  
+
+# 22 Sobre la movilización general de cerdos que ordenaron las autoridades de Rancas  
+
+Siguiern luchando. Don Alfonso Rivera pensó en envidia y tristeza, más tristeza que envidia, en las dotes de Fortunato. Aquel hombre era un Pico de Oro. Él, en cambio, se intoxicaba con las palabras. Él era un burro. Pero Fortunato se enmohecía en la cárcel por desacato a la autoridad.  
+Vestido de negro, con una camisa limpia sin planchar, sin corbata, el Personero atravesó la plaza de Rancas. En el viento que venía del lago, colgaba como una lágrima, la tempestad. El padre Chasán oficiaba. Rivera se mojó los dedos en agua bendita y se persignó. El padre Chasán, un hombre alto, blanco, de cejas espesas, prometía desde el púlpito el rayo de la cólera divina a los injustos. Rivera suspiró. ¿El señor Jesucristo fulminaría a "La Compañía"? El padre Chasán se limpió la frente con un pañuelo de hierbas. "Los abusadores y los violentos rodarán en la ceniza. Los bienaventurados y los mansos, los pobrecitos sin tierra, los pisoteados, los despejados, ellos se sentarán a la diestra de Dios Padre", tronó el púlpito apolillado. La iglesia exhalaba mugre y pobreza. Hacía poco, las autoridades se habían reunido en la iglesia. Respetuosamente solicitaron que el padrecito Chasán tomara juramento a la Directiva. "Juramento, ¿para qué?" "Para luchar contra la compañía Cerro de Pasco, padrecito." Las espesas cejas del padre Chasán volaron como cuervos. "¿Están dispuestos a luchar de verdad contra la 'La Cerro'?" "Sí, padrecito." Los cuervos revoloteaban en las paredes lamentables. "Esto no es juego. Luchar contra 'La Cerro' no es borma. Yo sólo puedo tomarles juramento si están dipuestos a luchar hasta el fin." El Personero y las autoridades se arrodillaron, anudados de lágrimas. El púlpito prometía ahora la Cólera. "Los que se proclaman dueños de la tierra, los príncipes que se atreven a cercar la tierra, todos perecerán. ¿Y quién osará comparecer cuando el Señor ordene levantarse a los huesos? ¿Los fariseos? ¿Los publicamos? ¿Los que osan cercar el mundo? ¿Los que clausuran los ríos? ¿Los que tapian los caminos?"  
+El padre Chasán bendijo a los fieles con una mano más velluda de rabia que de compasión. La gente metió los dedos de uñas negras en el agua bendita. Los domingos, la plaza de Rancas, desierta durante seis días, se empiojaba de polleras y ponchos, pero hacía muchos domingos que no se celebraba la Feria. Ese domingo, sin embargo, la plaza se fatigaba de multitud. Hacía una semana que los alguaciles de Rancas recorían los campos anunciando un cabildo. El Personero Alfonso Rivera citaba, bajo pena de multa, a todos los ranqueños.  
+Las autoridades salieron de la iglesia con las manos fervorosamente juntas. El Personero atravesó la puerta de la iglesia. Nevaría. El ojo rencoroso del lago Junín pronto sublevaría la nevada. El alguacil tocó la campana. Era un aviso inútil: Rancas, íntegra, esperaba bajo los primeros goterones. El Personero se dolió, de nuevo, de su poquedad: hubiera querido exhalar los desgarramientos de su corazón, contarles que un ángel azul se le había aparecido en sueños; que él, Rivera, era capaz de entregar su vida por cumplir; pero no encontró palabras, suspiró y se secó la frente sudorosa.  
+—¡Lean los títulos! —ordenó.  
+La asamblea envejeció. Los títulos de propiedad de una comunidad los cautela el Personero. Sólo otra persona (por si muere el Personero) conoce el lugar donde se esconden esos documentos que sólo se leen en las horas graves.  
+Un estudiante del Colegio Nacional, Daniel A. Carrión, hijo de Rancas, comenzó a leer. Subido sobre la mesa el muchacho flacuchento, de pómulos huesudos y de ojos tímidos, leyó con voz monótona. La lectura comenzó a las doce y doce minutos. Tardó dos horas. La gente soportó inmóvil, casi inmóvil, la enumeración de hitos, puquios, pastos y lagunas que probaban que esas tierras, que esa nevada que blanqueaba sus corazones, pertenecían a Rancas. A las dos de la tarde el lector acabó, tosiendo. El Personero se irguió. El viento le aplastó el desteñido sombrero negro.  
+—Un gran mal ha caído sobre este pueblo, hermanos —se retorció los dedos—. De nuestros pecados ha nacido un gran sufrimiento. La tierra está enferma. Un gran enemigo, una compañía poderosísima, ha dispuesto nuestra muerte.  
+Se apoyó sobre la mesa. Se le veía los hombros abatidos, como doblados por el peso de las nieves remotas.  
+—Rancas es pequeño, pero Rancas luchará. Un pique puede destrozar un animal. Una piedra en un zapato malogra el pie de un hombre.  
+—¡No hay enemigo pequeño! —gritaron dos ojos donde también peleaban, como perros, el miedo y el coraje.  
+En el rostro de Rivera aleteaba la desilusión.  
+—Las autoridades son chulillos de la "Cerro de Pasco Corporation". No les interesan nuestros sufrimientos. Está bien: lucharemos solos. Hermanos, el próximo domingo todos traerán un chancho. Cada hombre, cada jefe de familia, está obligado a traer un puerquito. Yo no sé cómo harán para conseguirlo. Quizá robarán, lo comprarán, lo prestarán. No sé. Lo único que sé es que el próximo domingo nos reuniremos en esta misma plaza con los puercos. Ésa es la tarea comunal: traer un chancho a esta plaza el próximo domingo.  
+La gente se desconcertó. ¿Está loco el Personero? Crepitaron algunas risas. ¿Para qué chanchos? Pero el Personero es el Personero. Había que cumplir.  
+Es difícil encontrar cerdos en la puna. Los pastores evitan a los puercos. El cerdo, devastadora colonia de parásitos, no es querido. El pasto que hocica el chancho es pasto contaminado. ¿Trescientos cerdos? Los comuneros más avisados compraron los cerdos de Rancas la misma tarde del domingo. El lunes escaseaban; entonces viajaron a los pueblos vecinos. La gente se les reía.  
+—Señora, véndame su cerdo.  
+—No puedo, estoy engordándolo.  
+—Alquílemelo, por favorcito, señora.  
+—¿Estás loco?  
+—Para una semanita, mamá.  
+—¿Para qué lo quieres?  
+—Para cumplir una manda de mis difuntos.  
+—¿Cuándo se han visto puercos en la iglesia, cholo zonzo?  
+—Te pagará diez soles.  
+—¿Qué me darás en prenda?  
+—Te daré mi poncho.  
+Donde fracasaba el dinero, ofrecían faena. Los Gallo levantaron una cerca; la señora Tufina cambió una frazada por un cerdo; los Atencio techaron un corral. Todos se las arreglaron. El domingo siguiente el cura Chasán salió de la iglesia con las cejas severamente enarcadas: los chillidos prohibían su sermón. Sentados sobre las últimas matas de una plaza ventosa, los ranqueños esperaban impacientes. El Personero Rivera escuchó la misa hasta el final, se mojó los dedos en agua bendita, se persignó y se arrodilló; sólo después que dibujó en su frente tres cruces arrugadas, salió lentamente.  
+Los alguaciles lo escoltaron.  
+—¡Cierren la plaza!  
+Los alguaciles clausuraron la plaza con tablones y champas. En unos minutos la plaza se transformó en un corral. Cuando los carpinteros terminaron de clavetear las esquinas, Rivera habló.  
+—¡Marquen sus cerdos! —gritó—. Hermanos, dejen aquí sus chanchos. Los ángeles cuidarán. Vuelvan el próximo domingo.  
+Un murmullo recibió sus palabras. Pero ya estaban acostumbrados a la avaricia de lengua del Peronsoer y el rostro de las autoridades no fiaba bromas. Personero es Personero. Marcaron sus animales y soltaron los cerdos. La gente de respeto se alejó; los papanatas y los curiosos se quedaron en el bramadero. Ese atardecer los cerdos acabaron las últimas matas. "¿Qué comerán los animales mañana?", preguntaron los propietarios, alarmados. "Nada —contestaron los alguaciles—, hay orden de no darles nada."  
+—¿Nada?  
+—Sólo agua se les dará.  
+—Será broma.  
+No era. El Personero había ordenado regalarles a los cerdos un ayuno absoluto. El lunes los cerdos iniciaron su inolvidable bramadero. El martes hociquearon debajo de las raíces: el suelo de la plaza se cribó de agujeros bordados de baba. El miércoles la gente amaneció con ojeras de a metro: no se podía dormir. El jueves, el Director de la Escuela acudió a la Personería a protestar. Si no silenciaban a los cerdos, sería imposible continuar las clases. El viernes los comerciantes, en pleno, protestaron. El sábado las viejas comenzaron una rogativa. ¿El Personero se había vuelto loco? El domingo, el padre Chasán se negó, en redondo, a oficiar. "Padrecito, no nos prives del auxilio divino", suplicó el Personero. El padre Chasán movilizó sus labios coléricos sin éxito: los chillidos borraban el mundo.  
+Pecadores señalados para lavar crímenes monstruosos, los cerdos ayunaron ocho días.  
+Nada alteró a don Alfonso Rivera. El domingo volvió a enfundarse en su traje negro y atravesó el pueblo con una mirada azabache. La gente repletaba la escuela. El Personero mandó cerrar las puertas. Ni asi lograron oírlo. Comprendiendo la inutilidad del comercio de la palabra, cogió una tiza y escribió sobre el hule negro de la pizarra: "Cada uno amarrará su chancho." Los cerdos estriaban las frágiles paredes del domingo. Borró y escribió: "Le quiero ver la cara a los gringos cuando sepan que sus ovejas comerán pasto infectado."  
+Sonreía hasta las orejas. La asamblea descosió una formidable carcajada. Hacía meses que Rancas no se reía. Por desgracia el bramadero impedía oír el chisporroteo de las risas. Pero, por los gestos, por las lágrimas, por la forma como se agarraban el vientre comprendieron que todos se carcajeaban. Infectar los pastos de "La Compañía" con los cerdos hambrientos. ¡Era formidable! El Personero escribió, con su enorme letra infantil, las instrucciones: cada hombre cogería un chancho y lo conduciría, patas y hocico amarrados, hasta los límites de las tierras de "La Cerro". En esos campos pastaban finísimas ovejas. Un ejército de veterinarios cuidaba mitológicos carneros. Uno sólo de esos carísimos australianos valía más que un rebaño de sus flacuchentas ovejas. Pero después que comieran el pasto infectado por los cerdos de Rancas, ¿cuánto valdrían?  
+El sol se nublaba. Saltaron a la plaza donde enloquecián los chanchos. Entre dos y entre tres los maniataron. La extraña procesión abandonó Rancas rezando: mujeres, hombres y niños demacrados y sucios marcharon hacia los límites de "La Cerro" con trescientos cerdos. Avistaron los límites de "La Cerro" a las tres. Guardianes mal encarados salieron blandiendo sus winchesteres. Los balazos esperaban que los comuneros cruzaran los límites. No los violaron. Don Alfonso se detuvo en los mojones. Trescientos cuatro hombres lo imitaron.  
+—¿Qué pasa? —gritó Olazo, el caporal de turno, un gañán huesudo—. ¿Adónde llevan esos chanchos?  
+—Los sacamos a pasear —contestó Rivera.  
+—¡Cuidadito! ¡No crucen la raya porque los quemamos!  
+El Personero se agachó y desamarró su cerdo. El chancho enloqueció a la vista del pasto.  
+—¡Hombre o animal que cruce, lo baleamos! —gritaron los vigilantes.  
+Soltaron los chanchos y los balazos. Un trueno de dientes flageló el campo. Los peones dispararon demasiado tarde: un milenio de hambre hozaba sobre el pastizal. El mundo era un chillido. Una tempestad de hocicos devastaba el pasto delicioso. Los vigilantes seguían disparando. Ocho, diez, quince cerdos rodaron justo cuando le metían el diente al pasto donde ya jamás volverían a pastar los espléndidos rebaños de "La compañía".  
+Al día siguiente, la "Cerro de Pasco" abandonó mil cuatrocientas hectáreas.  
+
+# 23 Vida y milagros de un coleccionista de orejas
+
+No se debe confundir *Cortavientos* con Cortaorejas. *Cortavientos* era un caballo que murió cuando el Coronel Marroquín viajó a Chinche a fundar un nuevo cementerio. Amador, el Cortaorejas, era un hombre. Pregúntensenlo a Carmen Minaya, su cuñado; la suya fue una de las primeras orejas de Amador. Se la cortó el séptimo día de la borrachera con la que Emigdio Loro celebró la primera comunión de su hija, la Mudita. Enajenado por el celeste acontecimiento, Loro encerró a los invitados con candado y arrojó la llave a las tinieblas de una inabarcable botija de aguardiente. Amarrados al honor del desafío, los invitados renunciaron a salir. Tardaron siete días en recuperar la llave. El descubrimiento provocó tal alegría, que Amador se asoció con el gallinero de su voz aguardentosa:  
+*Devuélveme el rosario de mi madre  
+y quédate con todo lo demás.*  
+—No rayes el espejo —protestó un barbaján alto de Michivilca, picado de viruelas, que dormitaba en un rincón.  
+—Si no me quieres oír, sácate las orejas —contestó Amador, resentido.  
+*Virgen de medianoche,  
+cubre tu desnudez*  
+—¡Quitámelas tú! —respondió el michivilcano y se levantó y avanzó arremangándose los puños. Casi no percibió el relámpago que le rebanó la oreja.  
+—¿Hay otro al que le sobren las orejas? —preguntó Amador con una candela de locura en los ojos—. ¡Sigan tocando, maricones! —gritó la orquesta.  
+Invitados y músicos se entregaron a las espumas de un furioso cachaspari. Contagiado por la alegría general, Amador bailó hasta las siete de la mañana; luego, remontó las cordilleras.  
+Tan expresiva muestra de aficiones filarmónicas no convenció a los yanacochanos que las orejas de Amador se marchitaban sin música. Ni siquiera lo entendió quien por su profesión y parentesco vivía en la obligación de amparar su melomanía: su cuñado, el músico Carmen Minaya. No ssólo lo desamparó, sino que lo vejó el día en que, babilónicamente borracho, Amador solicitó a la orquesta que lo acompañara a defecar el canchón vecino.  
+—Por favorcito —suplicó Amador.  
+Minaya lo mandó al lugar donde Amador se proponía depositar sus perlas malolientes.  
+—No me obligues a pegarte, cuñadito.  
+—¡Fuera de aquí, borracho!  
+—No me llames borrachito.  
+Carmen Minaya cometió el error de agarrarlo de las solapas. Mejor hubiera empleado sus manos recogiendo su oreja. Quien la recogió fue Amador.  
+—¿Vienen o se quedan? —gritó a la orquesta.  
+Mansamente, clarinetes y cornetas lo acompañaron a defecar. En el camino, Amador cortó una espina de cacto y se prendió la oreja en la solapa de su saco mugroso. Bailó hasta las siete de la mañana. Adornado por el bárbaro clavel, recorrió el pueblo gritando:  
+—¡En Yanacocha no hay hombre para mí!  
+No lo sabía.  
+Así, en el seno de su propia familia, usualmente ingrata para el talento, se reconoció su genio. Huyó, de nuevo, a las jalcas. Ya no le faltaron clientes. Calixto Ampudia, el herrero, fue el primero en comercializar sus habilidades. La víspera de Año Nuevo descubrió que a su mujer le batía el puré un normalista recién llegado. A su mujer le empedró la cara. Al maestrillo no quiso acariciarlo: tocarlo con sus manos era condenarse a perpetuidad. Prefirió humillar sus dos metros y atravesar la puerta de Amador. Sin mediar palabras depositó tres billetes anaranjados sobre la mesa. El Cortaorejas desenfundó una sonrisa pícara.  
+—¿Qué se te ha perdido, Calixto?  
+—Las orejas de un jaujino —contestó Ampudia sacando, debajo del poncho, una botella de aguardiente.  
+El Cortaorejas se zampó un trago redentor y tosió. Por educación fingía que el aguardiente lo lastimaba.  
+—¿Para qué la quieres?  
+—Quiero saber cómo son las orejas que escuchan los gemidos de mi mujer.  
+—Ese gusto te costará quinientos soles.  
+—Yo trabajo para mis gustos.  
+Siete días después, Calixto Ampudia conoció el terciopelo de la oreja que, desde hacía meses, escuchaba los jadeos de su hembra.  
+El Cortaorejas compareció esta vez ante el Juzgado. En la pura lectura del expediente, el doctor Montenegro reconoció que los talentos de Amador Leandro se desperdiciaban en los potreros. No sólo salió libre: el doctor le regaló un billete de cincuenta soles. El bellaco lo mandó encuadrar inmediatamente en la carpintería del pueblo.  
+Esa misma tarde, el Chuto Ildefonso lo contrató. Era un trabajo muy descansado. En cinco años —el tiempo de la primera carcelería de Héctor Chacón—sólo se le requirió tres veces. Su fama rebasaba los modestos límites de la provincia. Hacendados enamorados de las orejas de gentes que rehusaban quitarse el sombrero, se lo suplicaban al Juez. El doctor Montenegro, la gentileza en persona, siempre accedía a extender el modesto "programa de préstamos y arriendos" que Yanahuanca ejercitaba casi al mismo tiempo que una gran nación del norte.  
+El cuchillo de Amador, único artículo de exportación de la provincia, implantó la paz en los potreros.  
+El día en que el doctor Montenegro se enteró, por boca de Lala Cabieses, que la mano de Héctor Chacón padecía sed de su garganta y su palidez remontó las cordilleras escoltado por caporales y guardias civiles pensó, antes que nada, en el gusto que le daría acariciar las dos orejas del Nictálope. Huyeron por recovecos. Nadie se atrevía a dirigirle la palabra al Juez. El mismo Arutingo y el ex sargento Atala callaban, sombríos, los excesos que infaustamente sobrevinieron el día en que la *Nalgapronta* le pidió a la *Calzón de Fierro* que le prestara un alfiler, suceso que motivó la rotura de seiscientos vasos. Cabalgaron seis horas sin atreverse ni a vaciar sus aguardientes. Ya oscuro volvieron a Huarautambo. Goteaban las primeras estrellas cuando el Cortaorejas entró en el despacho del doctor.  
+Tres días después siete jinetes embozados entraron en Yanacocha atropellando chuscos. Se detuvieron delante de la puerta del Nictálope. El Cortaorejas abrió la puerta a patadas, pero la buena suerte del Nictálope quiso que hubiera viajado a cerrar, ese día, un trato de ganado, en Pillao. El colérico Cortaorejas enrumbó a la cantina, pagó sus deudas y mandó que le sirvieran la primera docena de cervezas. De botella en botella sus badulaques salían a espiar. El Nictálope tardaba. Cerrada la venta, el comprador le había pedido "que se quedara a cumplir penitencia". Héctor Chacón aceptó el ajiaco. Alborozado por adquirir por mil soles un torete, que por lo menos valía el doble, el dueño de casa mandó traer unas cervezas.  
+—Dicen que en este pueblo hay un valiente llamado Chacón —dijo el Cortaorejas quebrándose las costillas de la espalda con los pulgares—. Lástima que los valientes se ausenten cuando yo los visito.  
+Eran las siete. Una hora después, el Cortaorejas entendió que alguna alma caritativa le sacaba del camino a Chacón.  
+—¿Qué carajo hacen ustedes aquí? —gritó a sus guapos.  
+—Esperamos órdenes, don Amador —le respondieron sus matones, deseosos de no destetarse de las botellas.  
+—¡Qué órdenes ni órdenes! ¡Para Chacón me basto y me sobro solo!  
+Eructó ron Cartavio y marchito las flores de un flamante calendario. Los sacó a patadas. El Nictálope descendía lentamente la abrupta bajada de Pillao. A trescientos metros sus ojos descubrieron a una mujer sentada en una roca, a la vera del camino: Sulpicia. El Nictálope olfateó el peligro. ¿A quién esperaba Sulpicia? Se desmontó y amarró el caballo y avanzó a pie, sigilosamente. Sulpicia, que no poseía el poder de sus ojos, sólo lo distinguió cuando Chacón estuvo a tres pasos.  
+—¡Héctor, me asustaste! ¡Apúrate, Héctor!  
+El Nictálope olió el miedo de la mujer.  
+—¡Huaroutambinos armados te rastrean desde la mañana, Héctor! ¡Amador anda buscando tus orejas!  
+—¿Dónde?  
+—En casa de Santillán.  
+—Busca al Abigeo y al Ladrón de Caballos, Sulpicia. Que me alcancen allá.  
+—Cuídate, Héctor, cuídate.  
+Sulpicia se alejó en la oscuridad. El Nictálope se refundió entre las rocas. Los presentimientos se tostaban en el humo de la noche. Halando de las riendas a su caballo penetró en el corral de su casa y desensilló y sirvió agua y cebada. Se lavó lentamente la cara y las manos. No se peinó y salió hacia donde bebía el hombre más macho de la provincia. Amador brindaba con su sombra reflejada por la estropajosa luz del querosene cuando Chacón se desprendió de la oscuridad y atravesó la puerta. Santillán se demudó.  
+Sin pedir permiso, Chacón se rebalsó un vaso de cerveza y ostensiblemente la derramó.  
+—¿Así que me andas buscando?  
+Sólo la mitad de la boca sonreía. Se comprobó entonces la fragilidad del deseo humano. Enfebrecido por el ansia de encontrarlo, el Cortaorejas había esculcado todo Yanacocha en busca del rostro que ahora navegaba la espuma amarilla, pero no bien tropezó con la cara desesperadamente buscada, se le agotó el deseo.  
+—Buenas noches, don Héctor —saludó el Cortaorejas tan bruscamente bien educado que a Santillán le tembló la mano—. Buenas noches, señores —saludó al Abigeo y al Ladrón de Caballos.  
+Entre el chullo y la bufanda levantada sólo ardían los ojos felinos del Ladrón de Caballos. El Abigeo se limpió las manos, salpicadas de harina.  
+—¿Así que te gustan mis orejas? —El Nictálope cachaciento se acarició el lóbulo de la izquierda. Sin respetar la propiedad privada del hombre que había adquiridio, con su dinero, la cerveza, se sirvió otro vaso.  
+—¿Quién le ha dicho, don Héctor?  
+—Un pajarito.  
+El Abigeo, que carecía del humor del Nictálope, botó de un bofetón la botella.  
+¿Por qué has venido? ¿Qué andas buscando, concha de tu madre?  
+—He tenido un pleito con la señora Pepita —informó el Cortaorejas. En sus ojos titilaban tizones de inseguridad.  
+—¿Qué clase de pleito?  
+El Cortaorejas dejó destilar un minuto.  
+—La señora Pepita me mandó a matar a los yanacochanos.  
+Como queriendo excusarse de las malacrianzas de su mano, el Abigeo apartó los esparcidos vidiors de la botella.  
+—¿Y qué respondiste?  
+Vagamente aburrido, el Ladrón de Caballos metió la mano en un saco de trigo; comenzó, por juego, a pasarse el puñado de una mano a otra.  
+—Yo le dije que no quería más pleitos con mis hermanos. Bastantes peleas he tenido. Yo quiero amistad con mis cuñados. Eso le dije, pero la señora Pepita se molestó y me botó de la hacienda.  
+—¿Cuándo te botó?  
+—Hace tres días me botó.  
+El Ladrón de Caballos le arrojó el puñado de trigo en la cara.  
+—¿Por qué mientes, hijo de puta? Ayer tropezaste con mi hermano en la punta de Huajoruyuc. Tú ibas con los peones de Huarautambo y ordenaste que lo acabaran a latigazos. Tú has venido a espiar.  
+—Rebusca los bolsillos de este cojudo.  
+Chacón era de bronce.  
+Santillán se pegó a la pared. Rápidas culebras, las manos del Abigeo palparon los bolsillos de Leandro. Sacó y depositó sobre la mesa: tres llaves (una de ellas oxidada), un destapador regalado por *Kola Inglesa*, un lápiz romo, una carta y un revólver 38.  
+—¿Para qué cargas el revólver?  
+—Para cazar venados.  
+Las manos del Abigeo se sorprendieron. Un billete de rosados desconocidos deslumbró al explorador.  
+—¿Qué es esto?  
+Era la primera vez que veía un billete de quinientos soles.  
+—Mis ahorros —balbució el Cortaorejas.  
+—¿Así que cargas tus ahorros cuando te emborrachas? —La voz del Abigeo se reclinaba sobre el msotrador—. ¡Se terminó tu juego, Amador! ¡Mejor confiésate!  
+Chacón era ahora de nieve.  
+—Está bien —aceptó Chacón—, vamos a pensarlo despacio. —Y se volvió hacia Santillán—: ¿Tienes aguardiente?  
+—Hay, don Héctor.  
+—Véndeme tres botellas.  
+Las manos inquietas depositaron tres botellas oscuras, sin etiqueta, tapadas con coronta de maíz. Los ojos casi no vieron los quince soles arrugados sobre el mostrador.  
+—¡Vámonos a la provincia!  
+Los ojos del Nictálope dolían. Una noche felina se agazapaba en las matas ralas. En las cordilleras se enzarzaba una pelea de relámpagos. Sin los avisos del Nictálope, que prevenía piedras y precipicios, se hubieran despeñado. Yanacocha era unas cuantas luces. Avanzaron un kilómetro y descendieron a Urumina. Siempre uniformados de silencio, descendieron a Antac. En la noche sin estrellas sólo titilaba la respiración del Cortaorejas. Superaron Yurajirca. Ni el Cortaorejas ni sus guardianes descosían los labios. Avistaron Curayacu.  
+—¡Paren! —ordenó el Nictálope.  
+En la hondonada se divisaban las débiles luces de la provincia. Mirando el fulgor de la ciudad donde velaban los guardias civiles, Leandro se envalentonó. Su miedo soñaba a la provincia a la vuelta de las rocas.  
+—¿Qué refunfuñas?  
+—¿Quiénes son ustedes para sacar a la gente a los despoblados, a la brava? ¡Esto no quedará así! ¡Ya veremos cuando lleguemos a la provincia!  
+Las manos de Chacón forzaron a la camisa a sentarse sobre las rocas.  
+—¡Siéntate, cabrón! —lo azotó con la voz—. ¡Tú no llegarás a la provincia! —Y como si reconociendo a un amigo acabara con una broma, lo cogió de la mano y susurró—: ¡Escápate!  
+El Cortaorejas sintió que una alianza de odio y de asco, lo soldaba a una mano de hueso.  
+—¡Prueba, corre, escápate!  
+El Cortaorejas oyó el zumbido de un desprecio más vasto que la noche. Por sus puras palabras, jamás lo perdonarían.  
+—No me mates, tiíto —se arrodilló temblando.  
+Con el miedo, recuperaba la memoria. Bruscamente recordaba que el hombre por cuyas señas preguntaba desde por la mañana, una mañana ya remota en meses, era el mismo que veinte años antes, vestido de tío, un mediodía asfixiante, le había enseñado a pescar truchas.  
+—No te manches con la sangre de tu sobrino, tiíto —tiritó.  
+—¿Bailas huayno? —se burló el Abigeo.  
+—¡No me asustes, tiíto! El corazón se me salta.  
+—¡Basta de juegos! —gritó Chacón—. Declara la verdad.  
+—La señora Pepita llegará a saberlo.  
+—Aquí todos nos conocemos. ¿Cómo lo sabrá? ¿Quieres un trago?  
+El Cortaorejas se cauterizó el miedo con un sorbo de fuego.  
+—¿Está bueno?  
+—Muy buen aguardiente, tiíto.  
+—Bebe más.  
+—Estoy medio mareado, tío.  
+—¡Bebe más, cojudo! —y le tronó un disparo cerca de las orejas—. ¡Confiésate, hijo de puta!  
+En la oscuridad, los ojos especiales del Nictálope contaron las gotas de sudor que empapaban la frente de la voz demacrada.  
+—Todo lo que haces, don Héctor, la señora Pepita lo sabe. Si sesionas, si duermes, si caminas, todo lo conoce la hacienda.  
+—Si señalas al traidor, yo te autorizaré a quedarte en la comunidad.  
+Chacón se aterciopeló.  
+—Mis padres padecerán la represalia, tiíto.  
+—Casa y chacra te daré, y te haré amistar con los Minaya.  
+El Cortaorejas suspiró.  
+—La viuda Carlos es la que más avisa.  
+—Ella no va a sesiones. ¿Cómo sabe?  
+—Es bruja. Tiene animales que le avisan. Manda perros entrenados, animales que oyen lo que ustedes discuten y luego comunican.  
+—¿Y qué más?  
+—Pájaros también tiene, pájaros especialmente engordados.  
+—Y ¿qué más?  
+—La señora Pepita quiere que mueras.  
+—¿Por tu mano?  
+—Por broma acepté, tiíto.  
+—Este huevón nos denunciará —rechinó el Abigeo.  
+—Yo les juro, patrones...  
+—Este maricón nos perderá.  
+—Por la Santísima Virgen, yo...  
+—Bebe —ordenó Chacón alcanzándole la segunda botella.  
+El aguardiante ya no quemaba.  
+—Bébetela toda.  
+—La cabeza me baila.  
+—¿Tú descubriste a Montenegro que pensábamos matarlo?  
+—Sí, tiíto.  
+—¿Cómo le avisaste?  
+—Mandé un papel con Lala.  
+—¿Qué decía el papel?  
+—"Huya, doctor: Héctor Chacón va armado para matarlo en el comparendo."  
+—Ya está bueno —dijo Chacón.  
+—No pensarás dañarme, tiíto.  
+—Ha llegado la hora en que le saque la valentía a este cojudo.  
+La tormenta se alejaba. El Cortaorejas descubría que la voz tenía un rostro de pómulos duros, frente escasa y cabellos lacios.  
+—Amador, tú siempre te has hecho justicia con tu mano. Tú siempre manejaste el cuchillo como querías. ¡Qué me importa! Pero por unas libras de mantequilla, por una mierda de favores, traicionaste a tu comunidad. Tú nos has vendido al peso. ¡Agárrenlo!  
+Los arbóreos brazos del Abigeo y la fuerza del Ladrón de Caballos soldaron al Cortaorejas.  
+—¡Levántenlo!  
+Lo alzaron como a un niño. En la leche que derramaba, sorpresivamente, la luna, el Nictálope recuperó, por un instante, los ojos del niño con quien, en tiempos extraviados en la recordanza, había saltado arroyos o robado fruta. Pero demolió los rostros que proponía el recuerdo y los remplazó por la cara del traidor. Sacó un pañuelo y lo introdujo brutalmente en la boca del Cortaorejas. Los ojos de Amador se desbocaron en la asfixia. Se revolvió como una culebra, pero, poco a poco, el cuerpo se le inundó de pánico, de silencio, de aire usado.  
