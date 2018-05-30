@@ -1,3 +1,3 @@
-# 24 Retrato al óleo de un magistrado
+# 27 Donde el entretenido lector conocerá, siempre por cuenta de la casa, al despreocupado Pis-pis  
 
 —
