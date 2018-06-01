@@ -1,3 +1,3 @@
-# 27 Donde el entretenido lector conocerá, siempre por cuenta de la casa, al despreocupado Pis-pis  
+# 32 Presentación de Guillermo el Carnicero o Guillermo el Cumplidor, a gusto de la clientela  
 
 —
