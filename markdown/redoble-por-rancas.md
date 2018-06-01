@@ -1753,3 +1753,305 @@ Sopló el cigarro tres veces.
 —Tú caerás en tu casa, Héctor.  
 —Me tienen miedo. A mi casa nunca llegan —dijo Chacón ajustándose el barboquejo.  
 —¡Cuídate, Héctor, cuídate!  
+
+# 32 Presentación de Guillermo el Carnicero o Guillermo el Cumplidor, a gusto de la clientela  
+
+Al comandante G.C. Guillermo Bodenaco se le nombra por igual, Guillermo el Carnicero o Guillermo el Cumplidor. ¿Dónde se domicilia la verdad? Los ordenancistas insisten en que "el deber es el deber" y añaden: "un oficial es un oficial", anáforas que poseen la ventaja de abandonarnos como la "Cerro de Pasco Corporation" dejó a Cerro de Pasco: a oscuras. Los adversarios de Guillermo el Carnicero sostienen que al comandante lo enloquecía la sangrecita. Los criollos la sangre la comemos frita, con cebollas y hierbas halagadoras al olfato. "No nos referimos a esa sangre —predican tales adversarios—; hablamos de sangre humana." Los partidarios retrucan: ¿Willy era entonces un antropófago? Se les contesta: "No, no era antropófago, pero se deleitaba con la sangrecita." Y sacan papeles y papelotes recuerdan que durante el segundo gobierno del Presidente-ingeniero-doctor-alférez Manuel Prado, el Comandante Bodenaco participó en docenas de "desalojos". Gracias a su valerosa labor durante ese sexenio se enfriaron más cadáveres que en nuestras épicas batallas (la mitad de los muertos de la Batalla de Junín y el doble de los héroes de la Batalla del Dos de Mayo incluyendo las bajas españolas, dos de ellas de cólico). Así vivimos durante la segunda presidencia de ese simpático humorista que, en un rapto de inspiración, destiló esa gota de elixir filosófico: "En el Perú —precisó el Presidente Prado— hay dos clases de problemas: los que no se resuelven nunca y los que se resuelven solos." La incultura de los campesinos impidió la propagación de tan interesante axioma filosófico. Durante seis años el Gobierno fusiló a ciento seis campesinos. Guillermo el Carnicero o Guillermo el Cumplidor participó en casi todos los "desalojos". Para zanjar definitivamente las discusiones, el cronista resuelve denominar al comandante Bodenaco, alternativamente, por sus dos sobrenombres. El método evitará reconcomios. Guillermo el Cumplidor conocía el oficio. En el campo, antes que nada, invitaba a los campesinos a retirarse de las tierras invadidas. Los campesinos se obstinaban, tozudamente, en permanecer en sus tierras mascullando palabras incomprensibles, mostrando documentos sebosos y agitando banderitas peruanas. Primer error: el uso del bicolor nacional, prohibido a los civiles sin permiso, exasperaba los sentimientos patrióticos de Guillermo el Carnicero. El reglamento es categórico: el pendón nacional se reserva a instituciones y autoridades.  
+Así las cosas, una mañana, Guillermo el Cumplidor se detuvo en la bifuración del camino entre Cerro de Pasco y Rancas. Guillermo el Carnicero descendió del *jeep*. Instantáneamente se congeló una columna de pesados camiones repletos de guardias de asalto. En ese lugar, así como cincuenta mil días antes, otro jefe detuvo a su tropa: el General Bolívar, la víspera de la Batalla de Junín, librada en esa pampa. Minutos más, minutos menos, casi a la misma hora, Bolívar contempló los verdorosos techos de Rancas.  
+Un jinete se acercó.  
+—El enemigo está cruzando Reyes, mi General —dijo un edecán canoso por la polvareda.  
+Bolívar se ensombreció. ¡Canterac escapaba! En su rostro se pulverizaron mil kilómetros de marcha inútil.  
+—¿Qué piensa, mi general?  
+Sucre se veía pequeño, fatigado.  
+—Hay que provocar la pelea de todas maneras —masculló Bolívar—. ¿A qué distancia marcha la infantería?  
+—A dos leguas, mi General. —El uniforme del General Lara no se veía bajo el poncho oscuro.  
+—¡Ataque con los húsares! —ordenó Bolívar.  
+Lara impartió las órdenes. Salieron disparados los edecanes. Desde el abra de Chacamarca, Bolívar miró desplegarse la caballería. Los escuadrones ganaban lentamente la pampa. A tres kilómetros la polvareda que exhalaba Reyes se detuvo. Canterac volvió grupas. El horizonte se embarbaba de vertiginosos jinetes. Mil quinientos húsares se abanicaron como las plumas de un gigantesco pavo real de muerte. Los húsares se deleitaron en la belleza de su línea y avanzazron trescientos metros al trote, luego picaron espuelas: la pampa exhaló un relámpago de patas con las lanzas bajas.  
+—¿Qué sucede? ¿Por qué no se despliega nuestra caballería? —palideció Bolívar.  
+Quien no palideció fue Guillermo el Cumplidor. Miró con fastidio la llanura por donde avanzaba la tortuguienta Guardia Republicana. Era una vaina. Pero lo tomó filosóficamente, se reclinó en el *jeep*, extrajo un cigarro, lo encendió y exhaló el humo.  
+
+*De la jarana somos señores  
+y hacemos flores con el cajón  
+y si se ofrece tirar trompadas  
+también tenemos disposición.*  
+
+Tarareó Guillermo el Carnicero recordando cariñosamente al escultor del celebérrimo vals: el Mayor Karamanduka. Durante otra marcha, hacía cuarenta años, el rey de la jarana concibió la letra inmortal: el día que la Guardia Republicana a órdenes del Mayor Karamanduka viajó a masacrar a los obreros de Huacho que reclamaban la jornada de ocho horas.  
+La Republicana, mala tropa, avanzaba a paso de hormiga.  
+
+*Pásame la agüilla  
+pásame la agüilla*  
+
+tarareó el Comandante Bodenaco. El hombre de armas gusta de música. Once guerras ha tenido el Perú. El roquedal exhaló a Fortunato. Vestía unos pantalones salpicados de grasa y una sucia camisa a cuadros. La guerra de 1827 con Bolivia la ganamos. El paseo por el Titicaca lo pagaron los perdedores.  
+
+*Yo no te la paso  
+ni de raspadilla*  
+
+tarareó Guillermo el Cumplidor. Hacía más de dos horas que Fortunato había desembarcado el camión "Así y todo me quiere tu hermana". La guerra de 1828 con la Gran Colombia la perdimos: un general que llegó a Presidente traicionó a otro general. Inútilmente Nieto alanceó a Camacaro. Fortunato había cumplido su condena en la cárcel de Huánuco: desacató a la autoridad. La guerra de 1838, de nuevo con Bolivia, la perdimos. Para evitarse una nueva ración largaron a Fortunato de la cárcel la noche anterior. La guerra de 1837 contra los chilenos la ganamos, pero el Perú permitió al cercado ejército chileno retirarse íntegro, entre marchas triunfales. Fortunato pidió permiso para dormir bajo el "Así y todo me quiere tu hermana", que salió a las tres de la mañana para Cerro de Pasco. La guerra de 1839, de nuevo con Chile, la perdimos: claro que entre los vencedores formaban dos futuros presidentes del Perí, Castilla y Vivanco. Fortunato llegó a Cerro a las ocho de la mañana, ansioso de volver a su casa, pero no pudo resistir el olor de un caldo de carnero que hervía en una de las carpas de la plaza. Le quedaban tres soles.  
+
+*De la jarana somos señores  
+y hacemos flores con el cajón,*  
+
+cantó el mayor Karamanduka segando la marcha de blusas blancas, con la primera descarga.  
+—Por favor, un caldito —pidió Fortunato.  
+La dueña, una mujer de enormes nalgas, clavó los ojos en la carretera.  
+—¿Qué pasa, comadrita? —preguntó Fortunato, interesadísimo en congraciarse para que no le demoraran el caldo. La curva vomitó el primer camión policial. La guerra de 1841, de nuevo con Bolivia, la volvimos a perder: alguién le disparó por la espalda al Presidente Gamarra en plena batalla de Ingavi. Pesadamente avanzaban los camiones repletos de guardias de asalto. Las conversaciones se marchitaron. El zumbido del gentío se debilitó.  
+—Hoy desalojan a Rancas —susurró uno de los desayunadores. Fortunato, con un nudo en la garganta, reconoció a un comunero de Junín.  
+—Hoy es el desalojo —repitió.  
+Fortunato trató de sorber todo lo que podía del caldo hirviente. La guerra de 1859 la ganamos sin disparar un tiro. Ecuador pagó el pato: se acordó que el perdedor pagara el paseo por Guayaquil, pero inexplicablemente el Perú proporcionó dinero, vituallas y equipo. La garganta rechazó la quemadura del caldo. Su mano temblorosa alargó sus tres últimos soles y se acercó al paradero. Cinco minutos después saltó sobre un camión que reducía la velocidad en la subida; pero el asmático "Yo también fui último modelo" sólo avanzó unos kilómetros. En Colquijarca, una fila de guardias detenían el tráfico, fusil en mano. La guerra de 1879, iluminada por la solitaria antorcha del "Huáscar", la perdimos. El "Yo también fui un último modelo" ingresó en la fila. Fortunato saltó antes que lo viera el chofer. La Guardia Civil verificaba identidades. ¡Y cómo no perderla si el nuevo Presidente, General Iglesias, salió a combatir a los morochuscos vestido y armado por los chilenos! En un grupo de mineros cubiertos por cascos amarillos, Fortunato reconoció a un comunero de Ondores.  
+—Psst —silbó.  
+—¿Qué hay, Sapito, qué pasa?  
+El viejo enarcó las cejas y se llevó el índice a los labios.  
+—Shhh..., shh...  
+—¿Qué pasa?  
+—Oiga usted, hoy desalojan Rancas. Necesito llegar. ¡Préstame tu casco!  
+—¿Y yo cómo cruzo?  
+—Con tu carnet. ¡Préstame tu casco!  
+—Está bien, Sapito.  
+Atravesaron el control confundidos con los mineros. Los guardias civiles, excitados, verificaban a la loca. En el pavor de la retirada, perdida la guerra, los coroneles desesperados escribían "mande más sogas para mandarle más voluntarios". Fortunato cruzó el control y avanzó, cautelosamente, trescientos metros, luego empezó a trotar. La pampa resplandecía. La guerra de 1930, con Colombia, la perdimos. Presentimientos amargos trotaban con la lengua fuera. Pero entre 1900 y 1911 en el Putumayo se extrajeron 4 000 toneladas de caucho a costa de 30 000 huitotos. Buen precio: siete vidas por tonelada. Cada mata, cada piedra de esa estepa eran para él, diferentes, inolvidables. La guerra del 41 con Ecuador la ganamos: tres paracaidistas tomaron Puerto Bolívar. El viejo corría y corría. Ocho guerras perdidas con el extranjero; pero, en cambio, cuántas guerras ganadas contra los propios peruanos. La no declarada guerra contra el indio Atusparia la ganamos: mil muertos. No figuran en los textos. Constan, en cambio, los sesenta muertos del conflicto de 1866 con España. El 3° de Infantería ganó solito, en 1924, la guerra contra los indios de Huancané: cuatro mil muertos. Esos esqueletos fundaron la riqueza de Huancané: la isla de Taquille y la isla del Sol se sumergieron medio metro bajo el peso de los cadáveres. En esa pampa donde al hombre lo consuelan tan pocas horas de sol, Fortunato había crecido, amado, trabajado, vivido. Corría y corría. En 1924 el Capitán Salazar encerró y quemó vivos a los trescientos habitantes de Chaulán. En la lejanía fulguraban los techos de Rancas. En 1932, el Año de la Barbarie, cinco oficiales fueron masacrados en Trujillo: mil fusilados pagaron la cuenta. Los combates del sexenio de Manuel Prado también los ganamos: 1956, combate de Yanacoto, tres muertos; 1957, combates de Chin-Chin y Toquepala, doce muertos; 1958, combates de Chepén, Atacocha y Cuzco, nueve muertos; 1959, combates de Casagrande, Calipuy y Chimbote, siete muertos. Y en los pocos meses de 1960, combates de Paramonga, Pillao y Tingo María, dieciséis muertos.  
+
+*Somos los niños más engreídos  
+de esta bella y noble ciudad  
+por nuestra gracia y sagacidad.*  
+
+Compuso, con voz bien timbrada, el Mayor Karamanduka cuarenta años antes que Guillermo el Sanguinario tarareara sentimentalmente su memoria: el día que su regimiento redujo a los huelguistas de Huacho a un cuajarón de sangre. Fortunato recordó los nombres de sus carneros: *Algodón*, *Plumita*, *Amadeo*, *Flor del Campo*, *Banderita*, *Negro*, *Machito*, *Coqueta*, *Burlón*, *Trébol*, *Ocioso* y *Fortunato*. Se le licuaron los ojos.  
+Guillermo el Cumplidor divisó a Rancas, el objetivo, neto, al fondo de su línea de mira.  
+
+*Y si se ofrece tirar trompadas  
+también tenemos disposición.*  
+
+# 33 Valederas razones que obligaron a Héctor Chacón, el valiente, a disfrazarse de mujer.  
+
+Cuando Arutingo, el del volcánico trasero, desea humillar a Yanacocha, pregunta: "¿Chacón era el hombre más valiente de esta provincia?" La gente, que mira venir el bulto, esquiva la pregunta, pero el compadre golpea el mostrador con voz estropajosa: "¿Era o no era?" "Sí, era, don Ermigio." El borracho se zampa otro huacarazo y se carcajea. "¿Por qué se disfrazó entonces de mujer?" Es inútil negarlo. Una noche lluviosa, Chacón se vistió de mujer. Sulpicia le consiguió la ropa. Y como Sulpicia sólo tenía una muda, se prestó el pañolón y el sombrero de una viuda. Esa noche Chacón vistió de pollera, pañolón y sombrero. Es verdad, pero también es verdad que hacía meses que el juez Montenegro se clausuraba en su casa. Ese hombre tan aficionado a pasearse por las plazas y a meditar en los balcones, cambió de gustos; súbitamente desengañado por las alegrías del paisaje, se enterró en el exilio de habitaciones remotas. Renunció a sus paseos. Los Notables se embarbaron aguardando en las esquinas el paseo del Primer Vecino. El Magistrado perdió el gusto a las recorridas. El doctor Montenegro privó de su traje negro a la provincia. El Juzgado de Primera Instancia engordó de expedientes. Fue el siglo de oro del señor César. El pacífico secretario acudía todas las mañanas a la casa del Juez con una montaña de documentos, penetraba por la puerta ceñudamente vigilada por nubes de malencarados; una hora despuéz cruzaba, de nuevo, el portón azul, con las sentencias bajo el brazo. En el camino lo asaltaban los parientes de los enjuiciados. "¿Qé hay de mi marido, don César?" "Libre". "¿De don Policarpo qué hay?" "Sale a fin de mes." El doctor se condolía de las desgracias del género humano. Paseaba por sus corredores, en silencio, con el rostro nublado, inclinado el sombrero ya a la izquierda ya a la derecha. Su mano de piedra se ablandaba, comprendía la necesidad, perdonaba los errores, rebajaba las sentencias; era como si él, que nunca había pedido favores a la amistad, volviera ahora el rostro a las solicitaciones del cariño. El doctor no salía. Aun así, se necesitaron meses para que la gente cometiera la valentía de ocupar la plaza a la hora en que, en otro tiempo, el traje negro salía y contemplaba la derrota del día. Un atardecer, una pareja de enamorados intoxicados por la dicha, se atrevió a pasearse por la plaza a las seis; repitieron el paseo al día siguiente. Ni los guardias civiles ni los comerciantes osaron intervenir. "¿Por qué no sale el doctor?", interrogaban los agentes viajeros, sorprendidos. "Está estudiando", respondían de mala gana sus compinches. ¿Qué estudiaba? ¿Devanaba los misterios del cosmos? ¿Viajaba por los laberintos de las ciencias secretas? ¿Recorría los senderos de la magia? Todos los dáis se veía salir de su puerta azul a los caporales y se les veía volver con las compras o los recados de la hacienda; cabritos, pollos, conservas, aguardientes, pero no se descubrían libros. ¿Dónde hubieran podido comprarlos? En la provincia, nadie vende libros. El Almanaque *Picot* es la única lectura accesible. "El doctor practica la Magia Negra. Lo que le compran y le llevan los caporales son lechuzas. Yo las he visto", informaba sigilosamente el Niño Remigio.  
+Una noche en que el cielo tronaba, el Nictálope saltó la tapia del corral de Sulpicia y se deslizó, en la oscuridad, hasta la choza donde la vieja preparaba sus pellejos para dormir.  
+—¿Quién es? —se alarmó Sulpicia en el mango de un machete mohoso.  
+—Chacón es, mamá.  
+—¡Alabado sea Jesucristo! ¿De dónde sales, Héctor?  
+—No enciendas luz, mamá.  
+—Acércate al fogón, Héctor, tendrás frío. ¿Has comido?  
+El que tiritaba no contestó.  
+—¿Qué coméras en las alturas, Héctor?  
+—Muchas veces no como.  
+—¿Dónde dormirás?  
+—Donde me agarra la noche duermo. Pero todo está bien. Para matar a ese hombre todos los sufrimientos valen.  
+Sulpicia movió la cabeza.  
+—Nunca lo matarás, Héctor. El doctor Montenegro ya no sale de su casa. Trescientos peones lo custodian de día y de noche. No saldrá mientras tú no seas capturado. Comisiones de guardias civiles te buscan por todos los rumbos con orden de enfriarte.  
+—Ya lo sé, mamá.  
+—La Guardia Civil custodia todas las esquinas de la plaza. ¡Habría que ser araña para filtrarse!  
+—Repite eso, mamá.  
+—¡habría que ser una arañita!  
+En la riquísima calor del fogón sus ojos relampaguearon.  
+—¿Qué tal si me disfrazara?  
+Sulpicia sofocó una risa.  
+—¿De qué te disfrazarías, Héctor?  
+—Quizá me disfrace de mujer.  
+Sulpicia se carcajeaba.  
+—¿Qué diría la gente si viera a Chacón disfrazado de mujer?  
+—¿Qué tal si me meto hasta el mismo dormitorio de Montenegro disfrazado de cocinera?  
+—Se reirían. ¡Cómo se reirían!  
+—¿Y si volviera con la cabeza de Montenegro bajo mi pollera?  
+La luz de la vela devoraba los rasgos de la vieja.  
+—Preguntemos a la coca, Héctor.  
+El hombre ya no tiritaba. Se sentaron y sacaron puñados de coca. Al que le pregunta con el corazón limpio, la coca le adelanta su suerte. Si la coca lastima la boca avisa el peligro; si se ablanda en una bola dulzona, no hay riesgo. Se arrodillaron.  
+—Mamá coca, usted sabe todo. Usted conoce los caminos. El bien y el mal, el peligro y el riesgo usted los conoce. Mamá coca, Chacón quiere disfrazarse de mujer para matar a un abusivo. ¿Hay peligro? Hoja verde, mamá verde, mamá hoja, avísanos. Tengo fe en usted. Desconfío del animal, desconfío del agua, desconfío del metal. Sólo tengo fe en usted, mamá hoja.  
+Eran sólo dos mandíbulas.  
+—Mamacita hoja, señora verde, mamá hoja. Sulpicia te habla. Sulpicia quiere conocer la verdad, ¿qué pasará si Chacón cambia de prendas? ¿Qué pasará si bajamos para matar al hombre de corazón negro? ¿Nos capturarán? ¿Viviremos o moriremos? Hoja, hojita, contéstame.  
+—Mi coca es dulce —Chacón resplandecía—. No me cogerán. ¿Qué dice tu coca, Sulpicia?  
+—La coca acepta —respondió la mujer, aliviada—. Yo apenas tengo una muda, Héctor. Te prestaré un centro, pero faltará ropa. Aquí cerca vive una viuda. Yo le he facilitado media arroba de papas, no me negará alguna ropita. Espera, Héctor, espera.  
+Sulpicia volvió media hora después con un deshilachado pañolón azul y un sombrero de fieltro masticado por las lluvias. Héctor Chacón, el valiente, se atavió entonces de mujer.  
+—Anda a la plaza, Sulpicia, y compra alguna cosa.  
+Sulpicia retornó con el rostro descompuesto.  
+Chacón las vosas van ma. El sargento Cabrera me ha registrado.  
+Las mandíbulas verdes se inmovilizaron.  
+—¿Cómo es eso?  
+—Me detuvo y me preguntó: "¿Qué haces aquí? ¿Por qué caminas a esta hora?"  
+—¿Qué dijiste?  
+—Vengo de Cerro de Pasco, mi sargento, y estoy buscando posada. Él me quitó el sombrero y me dijo:  
+"¿Tú no serás por casualidad Héctor Chacón?"  
+—¿Usted qué piensa?  
+—Si sales, te chapan. Mejor escápate.  
+—Iré a mi casa.  
+—¿A tu casa?  
+—Los guardias me buscan por las alturas. Nunca soñarán que me escondo en mi casa.  
+El hombre flaco, de pómulos perfilados, de barba crecida, la miró. La cabeza horneada por las privaciones titiló, en los ojos de la vieja, por última vez.  
+La medianoche se ensañaba en una nueva enemistad de relámpagos. Chacón se deslizó por su puerta. En la oscuridad, Héctor contempló un rostro tiznado de miedo: Ignacia. "Soy Héctor", susurró pero vio claramente que el miedo no amanecía. Sin encender la luz se arrastró hasta el pellejo de Ignacia, mientras se bajaba el pantalón. Antes de exhalar una palabra Ignacio sintió entre las piernas la dulzura de la cornada. Se refocilaron hasta que clareó. Héctor se sentó en el amanecer naciente y encendió un cigarrillo.  
+—¿Qué te pasa Ignacia?  
+—¿Siempre sigue usted con la intención de hacerse justicia?  
+—Yo seguiré hasta el fin, Ignacia.  
+—La comunidad tiene miedo. Hay guardias civiles hasta en la sopa.  
+—Hay que acostumbrarse.  
+—¿Qué vas a hacer tú solo, Chacón? Cuando te pase algo, ¿quién velará por tus hijos?  
+—Si muero, moriré. Si vivo, viviré. Ése es mi destino.  
+El cigarillo la quemó con los ojos.  
+—No puedo abandonar esta lucha, Ignacia. Hay que luchar ya de frente, con bala de sangre.  
+—Mucho has cambiado, Chacón. Te desconozco.  
+—Yo nunca voy a estar bien con los ricos. Ellos son abusivos. ¿Voy a morir en la cárcel? Mejor moriré luchando.  
+La pollera sufría el cansancio, las noches sin hombre, las fatigas.  
+—Oye, Chacón, las papas están por subir al troje. Tus hijos se van a jugar, no me ayudan.  
+—Yo te ayudaré. Me quedaré.  
+—Aqui nunca te buscan. Los guardias visitan las casas de tus enamoradas.  
+—Pobrecitas, algunas mujeres que tienen varones presos o perseguidos, me alimentan. Por eso.  
+—Está amaneciendo, Héctor. Estarás cansado. Te prepararé tu desayuno, écate, descansa. Pobrecito, cómo dormirás en casas ajenas.  
+—A veces amanezco andando.  
+—Aquí puedes descansar.  
+—Primero dormiré, luego trojaré la papa.  
+—Voy a comprar. Ya vuelvo.  
+Pero quien volvió fue la Benemérita Guardia Civil. Y aquí se extravían los hagiógrafos. Los que quieren hornear al Nictálope le susurran que Ignacia lo entregó y se exceden hasta afirmar que su miseria alargó la mano para recibir esa mañana lluviosa un puñado de billetes anaranjados. El Niño Remigio discrepa y cuando resucita de sus ataques (cada día empeora, casi no hay mañana que no ruede con la boca espumosa) dice: "Fue su hija. Fue Juana. Yo la tengo denunciada en mi huayno." ¿Fue Juana? "A su marido lo tenían escogido por el servicio militar. Ampudia tenía veintiocho años, pero le rebajaron la edad. Juana sentía tizones en el vientre. Ella lo cambió por Héctor", dice el jorobado. "Yo vi tachar su nombre de la lista de conscriptos." ¡Imposible! Al Niño Remigio sólo le permitían entrar a la Jefatura de Línea para sacar la basura.  
+Chacón se zambulló en un sueño azabache. Hacía meses que no dormía bajo un verdadero techo. Soñó que lo hería una espina. Levantó el pie y miró su planta empedrada de guijarros, cubierta por filas de piedrecitas, como granos de una mazorca. Se las arrancó sólo para sentir que la piel se rendía en un vacío sin huesos. Pero estaba tan fatigado, que sólo despertó cuando aullaron perros y sonaron tiros. Abrió los ojos. Los balazos granizaban sobre la ventanita del troje. La Guardia Civil cercaba la casa. Para amedrentarlo, dispararon una hora. Acurracado tras unos sacos, el Nictálope oía chasquear los balazos en la madera. Hacia el mediodía goteó el tiroteo. Un silencio mordido de perros se desplomó sobre el susto de Yanacocha. Sus ojos se arrastraron a una rendija.  
+—¡Chacón! —gritaron las voces de la Guardia Civil—. ¡No dispares, son alumnos de la escuela!  
+Los ojos capaces de seguir una lagartija una noche sin luna distinguieron nueve guardias y una docena de tiradores parapetados detrás de los mandiles de los niños de la escuela. El Nictálope reconoció a algunos, miró su revólver y sopesó el costalillo, pesado de cartuchos.  
+—¡Mierda!  
+—¡Chacón! —gritó el sargento Cabrera—. ¡Si no disparas, te respetaré la vida!  
+Entreabrió la ventana y parpadeó en el oro del mediodía. Sus ojos abarcaron Yanacocha, los potreros, el camino a Huarautambo, la cara de *Lunanco*, las advertencias de Pis-pis, la fracasada revuelta de las caballerías, los treinta años de su prisión y los fusiles imantados a su pecho. Descendió la escalera.  
+El sargento Cabrera lo miró con alegría, con envidia, con rencor.  
+—¡Ya pisaste la cáscara, ya te resbalaste! —gritó.  
+
+# 34 Lo que Fortunato y el Personero de Rancas conversaron  
+
+El viejo divisó los tejados de Rancas. Se detuvo en una roca. Cincuenta mil días antes el General Bolívar se había detenido allí: la mañana de su entrada en Rancas. Bolívar quería Libertad, Igualdad, Fraternidad. ¡Qué gracioso! Nos dieron Infantería, Caballería, Artillería. Fortunato avanzó ahogándose, por la callejuela. En el yeso de la cara, le miraron la desgracia.  
+— ¡Ya vienen! ¡Ya viene la Guardia de Asalto!  
+Respiraba con la boca abierta.  
+—¿Por dónde?  
+—¡Por Paria!
+Se sentó, agotado. Algo así como cincuenta mil días antes el Mayor Rázuri —cinto tardes después encabezaría la carga de los "Húsares del Perú"— había evadido allí la coz de un chúcaro asustado por el anaranjado remolino de una mariposa.  
+—¡Auxilio, auxilio, Virgen María!  
+—¡Ya nos llegó la hora!  
+—¡Hay que hacer algo!  
+—¡Nos matarán como perros!  
+—¡Cómo van a matarnos! ¡El uniforme es para defender a los peruanos, no para atacarlos!  
+—¿Dónde está el Personero? —preguntó Fortunato.  
+Hombres y mujeres de rostros derrocados revolotearban por la plaza. El viejo pensó, sin querer, en las moscas entontecidas en la luz de las lámparas.  
+—No somos moscas —dijo en voz alta.  
+—¿Qué cosa, Fortunato?  
+Teodoro Santiago volvía a sus gritos.  
+—¡Pecado, pecado! ¿Por qué no se terminó el altar? Para diversiones y corrupciones siempre hubo, pero ¿para Diosito? ¿Quién se acordó? ¡Pecadores, corruptos, sinvergüenzas!  
+—¡Cállese, carajo!  
+—¡Desvergonzados, sin temor de Dios! ¡Arrodíllense!  
+—¡Silencio, carajo! —gritó Fortunato cogiendo a Santiago de las solapas enlutadas, aún llorosas por Társila Santiago—. ¡Silencio! No es hora de gritar, sino de pelear. Ho nos jugamos el todo por el todo. ¡Ármense con palos, con piedras, con lo que sea! ¡El todo por el todo! ¿Oyen?  
+Ochenta manos sucias de trabajo recogieron piedras. Al agacharse miraron al Personero Rivera.  
+—¿Por dónde vienen? —gritó el Personero corriendo.  
+—Por tres rumbos —dijo el pequeño Mateo Gallo, desalentado—, ¡por Paria, por Pacoyán y por la carretera!  
+Por el rumbo de las haciendas trescientos jinetes seguían el trote del doctor Manuel Carranza. Algo así como cincuenta mil días antes, casi al mismo paso, el General Necochea, jefe de la caballería patriota, había avanzado por allí.  
+—¡Ahora nos matarán a todos! —gimoteó una mujer.  
+—¡No se alarmen, papacitos! —dijo Rivera—. No pasará nada. En Villa de Pasco, Adán Ponce resistió a la tropa. ¿Ha muerto? ¿No atiende su café? Ayer no más lo vi tomándose un riquísimo caldo. No pasará nada. ¡Vamos a arreglar bonito!  
+Se calló bruscamente. Los pavonados rostros de los guardias de Asalto avanzaban a la Puerta de San Andrés. Algo así como cincuenta mil días antes había cruzado esa entrada la avanzada del General Córdoba, cinco días antes que su regimiento fundara en esa pampa la República del Perú. Avanzaron los de Asalto. A unos treinta metros empuñaron las metralletas. A don Mateo Gallo —¡pronto lo enfardelarían como una momia!— le pareció que las bocas de las metralletas agigantaban más que las de los cañones que una vez había visto desfilar en el Campo de Marte: un aniversario de la batalla de Junín. Un alférez flaco, de cara pecosa, maltratado por la altura, se adelantó. Rivera se enfrentó.  
+—¿Cuál es el motivo, señores? —preguntó con voz adelgazada por la palidez.  
+—¿Usted quién es?  
+—Yo soy el Personero de RAncas, mi alférez. Yo quisiera saber...  
+Se le extravió la voz. El alférez lo miró, cachaciento. Tres años de servicio le enseñaban que el uniforme enronquece las voces más valientes. El Personero sudaba para recuperar la palabra refugiada en sus intestinos. Quería hablar, informarle al alférez que ellos, los comuneros, pisaban sus propias tierras, que si les daban tiempo exhibirían títulos expedidos por la Audiencia de Tarma, pergaminos emitidos antes que el alférez, que el bisabuelo del alférez, naciera, que sólo vivir en esa estepa enemistada con el sol es ya una hazaña, que esos pastos no producían nada, que en esa pampa donde el sol calienta una hora, un saco de semilla produce apenas cinco sacos de papa, que ellos casi no conocían el pan, que sólo en los buenos años podían comprarle a sus niños galletas de soda, que ellos...
+Quien habló fue Fortunato.  
+—¿A qué se debe la visita, mi alférez?  
+—Hay orden de desalojo. Ustedes han invadido propiedad ajena. Tenemos orden de desalojarlos. ¡Se van! ¡Ahora mismo se van!  
+—Nosotros no podemos desalojar esta tierra, mi alférez. Nosotros somos de aquí. Nosotros no hemos invadido nada. Otros nos invaden...  
+—Tienen diez minutos para desalojar.  
+El uniforme se volvió a la fila grisácea.  
+—Es "La Cerro de Pasco" quien invade, mi alférez. Los gringos nos cercan y nos persiguen como a ratas. La tierra no es de ellos. La tierra es de Dios. Yo sé bien la historia de "La Cerro". ¿O acaso los americanos trajeron la tierra al hombro?  
+—Faltan nueve minutos.  
+El escuadrón de republicanos convergía a la Puerta de San Andrés.  
+—En estos lugares nunca se conocieron cercos, mi alférez. Nosotros nunca supimos lo que era un muro. Desde nuestros abuelos, y aun antes, las tierras eran de todos. Ni alambrados, ni cercos, ni candados conocimos hasta que llegaron los gringos de mierda. Ellos introdujeron los candados. No sólo los candados. Ellos...  
+—Faltan cinco minutos —murmuró el galón. El viejo miró las llamaradas. Los escuadrones comenzaban a incendiar las chozas.  
+—¿Por qué incendian? ¿Por qué atacan? ¡Ustedes no respetan ni padre ni madre! —rezongó—. Ustedes no saben lo que es ganarse la vida. Ustedes nunca han agarrado una lampa, nunca han abierto un surco...  
+—Faltan cuatro minutos.  
+—No para abusar. Para protegernos el Gobierno les paga, señores. Nosotros no faltamos a nadie. Ni siquiera faltamos al uniforme. —Señaló el color caqui: "Ése no es el uniforme de la patria." Se agarró la chaqueta: "¡Estas hilachas son el verdadero uniforme, estros trapos...!"  
+—Faltan dos minutos.  
+La gente fugaba sucia de alaridos. El incendio crecía. Una lágrima surcó el pómulo de cobre.  
+—Nos consideran bestias. Ni nos hablan. Si nos quejamos, no nos ven; si protestamos... Yo me quejé al Prefecto. Yo llevé a los carneros, mi alférez. ¿Qué dijo?  
+El alférez sacó lentamente su revólver.  
+—Ya no falta nada —dijo y disparó.  
+Una universal debilidad destituyó a la rabia. Fortunato sintió que el cielo se desfondaba. Para defenderse de las nubes alzó los brazos. Se abrió la tierra. Intentó agarrarse de las hierbas, de la orilla de la vertiginosa oscuridad, pero sus dedos no obedecieron y rodó, rebotando, hasta el fondo de la tierra.  
+Semanas después, en sus tumbas, sosegados los sollozos, acostumbrados a la húmeda oscuridad, don Alfonso Rivera le contó el resto. Porque los enterraron tan cerca que Fortunato escuchó los suspiros de don Alfonso y consiguió abrir un agujero en el barro con una ramita. ¡Don Alfonso, don Alfonso!, llamó. El Personero, que se creía condenado para siempre a la oscuridad, sollozó. Lloró una semana, luego se calmó y, más tranquilo, le informó que él, Fortunato, se escurrió al primer balazo, de bruces, sobre su sangre.  
+—¿Y qué pasó luego?  
+—"Ya saben que esto va en serio", gritó el alférez. La gente se dispersó como plumas de gallina. Yo no pude pararlos. "Tienen otros cinco minutos", advirtió.  
+—¿Y qué pasó? —preguntó Fortunato ampliando, pacientemente, el orificio.  
+—Se me ocurrió traer la bandera. Al Pabellón Nacional lo respetan todos. Esto pensé.  
+—¡Era una magnífica imaginación, don Alfonso!  
+—Ordené traer la bandera de la escuela. Don Mateo Gallo se acomidó a traerla.  
+—¡Muy bien hecho! Usted no podía abandonar su puesto.  
+—Volvieron con la bandera. Los guardias rodeaban Rancas. Una cintura de capitanes venía por tres lados. Por el lado de Paria vino el doctor Manuel Carranza con trescientos cabalgados.  
+—¡Cojones!  
+—Egoavil traía doscientos montados de Pacoyán y por la carretera, el propio Comandante Bodenaco.  
+—¿Y?  
+—"Cantemos el himno." No me salía la voz, don Fortunato. Finalmente comenzamos: "Somos libres, seámoslo siempre." Yo pensaba "van a cuadrarse y saludar". Pero el alférez se calentó: "¿Por qué cantan el himno, imbéciles?" "¡Suelta eso!", me ordenó. Pero no solté la bandera. La bandera no se suelta.  
+—Esa bandera tiene un escudo bordado que si no recuerdo costó seiscientos soles.  
+—Eso pensé, don Fortunato, pero los guardias me soltaron una docena de culatazos; yo caí, pero seguí cantando "...y antes niegue sus luces el sol que faltemos al voto solemne...". Se enfurecieron y me molieron a culatazos. Me rajaron la boca. "Suéltala." "No la suelto." "Suéltala, concha de tu madre," "No la suelto." Me zamparon un bayenotazo y me cortaron la mano. "Suéltala." Otro sablazo me descolgó la muñeca.  
+—¿Y los demás?  
+—Habían corrido. Me quedé solo.  
+—¿Y luego?  
+—Yo vi la grasa de mi mano y pensé: ya me jodieron. Ahora ¿con qué voy a trabajar? Y no recuerdo más: ahí mismito oí la ráfaga.  
+—¿Y luego?  
+—Ya no sé más. Me desperté aquí, consolado por tu voz, Fortunato.  
+—Yo sí sé lo que pasó luego —dijo una voz.  
+—¿Quién es? ¿Quién habla?  
+—Soy yo, Tufina.  
+—¡A usted también la mataron, viejita! ¡Hijos de puta!  
+—No blasfemes, Fortunato. Considera el sitio. Piensa en Dios.  
+—Se le oye mal, doña Tufina —dijo Fortunato—. ¿No puede abrir un huequito?  
+—No puedo, tengo los dedos rotos. Me los machacaron.  
+—¡Hijos de puta!  
+—Cuenta no más, mamacita —dijo Rivera—. ¿Qué pasó? ¿Qué sucedió con mis hijos?  
+—A tus hijos los vi vivos, llorando sobre tu cuerpo. Tu mujer gritaba: "¡Bandera es mentira, himno es mentira!"  
+—¿Seguro que los viste?  
+—Ensangrentados, pero vivos, don Alfonso.  
+—Cuente lo que sucedió luego, doña Tufina —dijo Fortunato tratando de no maltratar más al Personero.  
+—Usted cayó, don Alfonso. Los guardias avanzaron regando muerte. Las balas suenan como maíz tostándose. Así suenan. Avanzaban; de rato en rato, se detenían y mojaban los techos con gasolina. Las casas ardían. Vi caer a Vicentina Suárez. La gente se enfureció. Respondió con piedras. Cayó don Mateo Gallo.  
+—¿Era la única resistencia?  
+—No, no era la única. Los muchachitos de la escuela subieron a la loma y trataron de empujar una galga.  
+—Pero ¡si el terreno no tiene subida!  
+—Así es, fracasaron: las piedras no rodaban. Los guardias los corrieron a balazos. Allí cayó el muchachito Maximino.  
+—¿El que construyó el espantapájaros?  
+—Así es, señor Personero. Vi caer al muchachito y sentí una quemazón en la sangre, saqué mi honda y le solté una pedrada en la cara a uno de los guardias. Me disparó su metralleta. Caí de espaldas con la barriga abierta.  
+—¿Moriste allí mismo?  
+—No, estuve muriendo hasta la tarde.  
+—¿Y nadie te ayudó?  
+—¿Quién me iba a ayudar? Rancas era un ascua. Incendio, gritos y balas, humo, y llantos, eso era.  
+—¡Pobre doña Tufinita!  
+—Vomité mi vida a las cinco. Lo último que vi fue el humo de las bombas lloradoras.  
+—Shsst —susurró Rivera—, shss ¿No oyen? Están bajando otros muertos.  
+—¿Quiénes serán? —dijo Tufina.  
+—Si son ranqueños, algo conocerán —dijo Rivera.  
+Para no asustar a los sepultureros, que cavaban, se callaron. No abrieron la boca hasta que el sordo paletear de las lampas apagó el ruido de la mañana. Suave, delicadamente, trataron de comunicarse con el nuevo.  
+—¿Quién es? ¿Quién es usted?  
+Sólo les respondió el tranquilo rumor de un dulce canto.  
+—Es un angelito —dijo Tufina.  
+—¿Cómo te llamas, hijito?  
+El angelito siguió cantando. Ninguna respuesta obtuvieron, pero tres días después sonaron los aldabonazos de otro sepelio. Temerosos de que los sepultureros lo enterraran lejos de sus voces, enmudecieron.  
+—¿Quién es usted? —preguntó Fortunato.  
+El zumbido de los padrenuestros arreció.  
+—¡Perdóname, Jesucristo, que no me arrodille! ¡Discúlpame que no te bese tu mano! —suplicó el recién llegado.  
+—¡Soy Fortunato, don Teodoro!  
+—¡He pecado! ¡Por mi culpa y por mi grandísima cupa fuiste condenado y crucificado!  
+—Cálmese, don Teodoro. Ya pasó lo peor.  
+—¿Quién eres?  
+—Soy Fortunato.  
+—No me asustes, Sapito.  
+—¿Qué le ha pasado, don Teodoro?  
+—¡He estado mal, don Alfonso! El día de la masacre los guardias me culatearon en el costado. Escupí sangre. No me cuidé. Ése fue mi error: cogí un viento. Padecí dos semanas. Sólo ayer descansé.  
+—¿Qué novedades hay arriba? —preguntó, con sencillez, Rivera.  
+—¡Todo anda boca abajo, Personero! La policía persigue a todos los habladores. Se han llevado a muchísimos presos. El mismo Alcalde de Cerro está encarcelado en Huánuco. Tú tenías razón, Sapito. No es Jesucristo quien nos castiga, son los americanos.  
+—¿Se ha convencido, don Santiago?  
+—¡Me convenciste, Fortunato!  
+—Pero ¿qué ha pasado? —se impacientó Rivera.  
+—Los hacendados quieren borrar a las comunidades. Han visto que "La Cerro" nos masacró a su gusto. Se exceden. ¿Se acuerdan de la escuela 49357?  
+—¿La escuela de Uchumarca?  
+—Al día siguiente de la masacre los Proaño mandaron clausurar la escuela. Sacaron a los niños, vaciaron el local, destecharon el tejado y metieron candados. Ya no es una escuela: es un chiquero.  
+—Pero ¡si esa escuela tenía un escudo mandado de Lima! —se asombró Rivera.  
+—¡No hay niños, hay cerdos! Sucede lo mismo en toda la pampa. Sobramos en el mundo, hermanitos.  
+—Shsst —avisó Tufina—. Ahí vienen otros.
+—¿Quiénes serán?  
+—¿Serán ranqueños?  
+—¡Sabe Dios! —suspiró Fortunato.  
+
+# Epílogo: 1983
+
+*Un día del mes de junio de 1983, doña Pepita Montenegro, esposa del juez Francisco Montenegro, fue secuestrada de su hacienda "Huarautambo" por combatientes de Sendero Luminoso. Fue ejecutada luego en una plaza pública de Yanahuanca, departamento de Cerro de Pasco, en los Andes Centrales donde transcurren* Redoble por Rancas *y todos los volúmenes de "La guerra silenciosa".  
+"Los protagonistas, los crímenes, la traición y la grandeza casi tienen aquí sus nombres verdaderos... Ciertos hechos y su ubicación cronológica, ciertos nombres han sido excepcionalmente cambiados para proteger a los justos de la Justicia", adiverte la* Noticia *que precedió* Redoble por Rancas *en 1970.  
+El todopoderoso feudalismo agrario sobrevivía entonces, casi intacto, en las cordilleras de los Andes Centrales. (Comenzaba apenas la Reforma Agraria del Gobierno Militar Revolucionario.) Posible era nombrar a los héros de "La guerra silenciosa". Imposible a los que provocaban los excesos que aquí se narran.  
+Nombré, sí, al existente Héctor Chacón, el Nictálope. ¿Qué podía perder un prisionero condenado a 20 años en una Colonia Penitenciaria amazónica? Pero el sorpresivo eco de este libro también sacudió al Perú. El 28 de julio de 1971 el presidente del Perú Juan Velasco Alvarado amnistió a Héctor Chacón.  
+El novelista Guillermo Thorndike reveló en el diario* Correo de Lima *(julio-agosto, 1971) que el verdadero nombre del juez de Yanahuanca, Francisco Montenegro, era Francisco Madrid. El de su temida, todopoderosa, legendaria esposa —que en este libro aparece fugazmente—, pero cuyos asombrosos hechos cuentan mis novelas* El jinete insomne *y* Cantar de Agapito Robles *era, en realidad, Alcira Benavides de Madrid.  
+En 1975 el general Francisco Morales Bermúdez derrocó al general Velasco Alvarado. Para anunciar que "La Reforma Agraria era un hecho irrerversible" consideró necesario proclamarlo en un Consejo de Ministros celebrado en el pueblo de Rancas.  
+En 1978, pretendidos personajes me enjuiciaron por "difamación y calumnia". El ex subprefecto de Yanahuanca, Américo Ledesma, se sintió reconocido en el subprefecto Arquímedes Valerio y reclamó perjuicios de 500 000 dólares. No obstante ser suma sin precedentes en el derecho peruano; el Poder Judicial amparó la demanda. Pero se probó que el acusador era instrumento de partidos políticos otrora vinculados a la "Cerro de Pasco Corporation". La Corta Suprema me absolvió en abril de 1978.  
+Pero la intrusión de la realidad no cesó. En enero de 1982, durante el "Simpósium de Narrativa Peruana" celebrado en la Universidad de Huamanga, en la ciudad de Ayacucho, ya desgarrada por otra guerra campesina, el antropólogo Juan Rivera informó que Garabombo —personaje de* Garabombo, el invisible— *era reverenciado como jurca (divinidad protectora) del cerro Jupaicanán. La comunidad de Tusi —informó también— sostenía que los imaginarios ponchos mágicos de la imaginaria Doña Añada* existían *en esa comunidad cuyas hazañas cuenta* La tumba del relámpago.  
+*La realidad acaba de escribir el sangriento epitafio de Pepita Montenegro, mujer del juez Francisco Montenegro. Desconozco los detalles del drama acaecido en las cordilleras de las serranías peruanas que hoy asuela, desgarradoramente, la guerra civil. La comunidad de Yanacocha la había perdonado, pero, aparentemente, eso no extinguió todos los rencores.  
+Indiferente a la voluntad del autor, la realidad de la que nacieron estas novelas sigue (y acaso seguirá) escribiendo capítulos que nunca figuraron en "La guerra silenciosa".*  
+
+MANUEL SCORZA  
+París, 24 de junio de 1983  
