@@ -25,7 +25,7 @@ español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages
 
 ## Novelas - Novels
 
-* ~~Redoble por Rancas (1970)~~
+* Redoble por Rancas (1970) - (https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/redoble-por-rancas.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/redoble-por-rancas.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * ~~Historia de Garabombo el invisible (1972)~~
 * ~~El jinete insomne (1977)~~
 * ~~Cantar de Agapito Robles (1977)~~
