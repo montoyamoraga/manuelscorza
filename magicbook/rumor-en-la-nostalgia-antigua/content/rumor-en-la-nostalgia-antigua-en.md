@@ -25,47 +25,47 @@ your crown.
 It was half since the undone plumage of the afternoon,  
 from the tides, from the oblivion.  
 
-¡Y ahora estoy en medio de los meses invadidos,  
-entre las finales cáscaras del día!;  
-oigo que te pones el vestido sucio de un fantasma,  
-siento que un sol ciego  
-te llueve con plumas aguas, y ya no te conozco.  
-¿Quién, pues, eres tú que desaguas eternamente  
-al otoño con tu cubo?  
-¿quién te enroscas tu barba al horizonte?  
+And now I am in the middle of the invaded months,
+between the last shells of the day!;
+I hear that you put on the dirty dress of a ghost,
+I feel that a blind sun
+rains you with water feathers, and I don't know you anymore.
+Who, then, are you who eternally drains
+fall with your bucket?
+who do you twist your beard to the horizon?  
 
-Ésta es la hora  
-en que la luz se arranca las pestañas,  
-tirita el lirio en la cama polvorienta del relámpago,  
-viaja el toro al dorso del bramido.  
-Ésta es la hora  
-en que a tu isla de párpados recién cernidos  
-llega la lluvia desangrándose de ruiseñores.  
-¡A ver la niebla, que él está mirando!  
+This is the time
+in which light tears off its eyelashes,
+the lily shivers in lightning's dusty bed,
+the bull travels overleaf the roar.
+This is the time
+in which to your just sifted island eyelids
+rain arrives bleeding out mockingbirds.
+Now the fog, they are looking!
 
-¡A ver la hierba, que yo no tengo la culpa  
-que empañe el paisaje como un vaso!  
+Let's see the grass, I am not guilty
+of tarnishing the landscape like a glass!
 
-¡Ah, combatiente, qué dirías si vieras  
-el resplandor que te encuaderna las entrañas!  
-¡Ya no es posible que no sepas que tus dedos  
-emergen de los golfos trayendo aquí  
-todos los días una flor de luz petrificada!  
-¡Ya no es posible, ni tampoco quiero,  
-que mi corazón se vaya  
-en el carruaje amarillento de las hojas!  
+Oh, combatant, what would you say if you saw
+the blaze that binds your bowels!
+It is no longer possible you didn't know your fingers
+emerge from the gulfs bringing here
+every day a flower of petrified light!
+It is no longer possible, nor I want to,
+that my heart leaves
+in the yellowish carriage of the leaves!
 
-Mas no lloradlo.  
-A Él lo construye perpetuamente el agua.  
-En el principio, cuando la lágrima vuelve  
-a su trono transparente, lo edifica  
-el viento que borra los sepulcros.  
-¿Qué lo han visto en los malecones  
-por donde llega el otoño,  
-de jazmín en jazmín desde el fondo de la tierra?  
+But don't weep for them.
+They are perpetually built by water.
+In the beginning, when the tear turns
+its throne transparent, it is edified by
+the wind that erases the tombs.
+Have they been seen in the piers
+where fall arrives,
+jasmine by jasmine from the bottom of the earth?
 
-Levántate,  
-las gentes no quieren creerme  
-que por todas partes limitas con el alba,  
-que estás en la gota donde, ya en ruinas,  
-agitando los brazos se despide el horizonte...
+Rise up
+people don't want to believe me
+that everywhere you limit with dawn,
+that you are in the waterdrop where, already in ruins,
+waving its arms the horizon says goodbye...
