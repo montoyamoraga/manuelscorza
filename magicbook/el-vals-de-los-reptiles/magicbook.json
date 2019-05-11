@@ -1,18 +1,28 @@
 {
-  "title" : "Los adioses",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/toc.html",
-    "content/el-vals-de-los-reptiles.md"
-  ],
+  "title" : "El Vals De Los Reptiles",
+  "author": "Manuel Scorza",
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/el-vals-de-los-reptiles-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/el-vals-de-los-reptiles-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+      "destination": "build/en/:build"
     }
   ]
-  }
+}

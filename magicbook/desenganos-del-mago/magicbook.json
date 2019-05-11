@@ -1,18 +1,28 @@
 {
-  "title" : "Los adioses",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/toc.html",
-    "content/desenganos-del-mago.md"
-  ],
+  "title" : "Desengaños Del Mago",
+  "author": "Manuel Scorza",
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/desenganos-del-mago-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/desenganos-del-mago-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+      "destination": "build/en/:build"
     }
   ]
-  }
+}

@@ -1,18 +1,28 @@
 {
-  "title" : "Los adioses",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/toc.html",
-    "content/los-adioses.md"
-  ],
+  "title" : "Los Adioses",
+  "author": "Manuel Scorza",
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/los-adioses-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/los-adioses-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+      "destination": "build/en/:build"
     }
   ]
-  }
+}

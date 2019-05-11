@@ -1,18 +1,28 @@
 {
-  "title" : "Las imprecaciones",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/toc.html",
-    "content/las-imprecaciones.md"
-  ],
+  "title" : "Las Imprecaciones",
+  "author": "Manuel Scorza",
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/las-imprecaciones-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/las-imprecaciones-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+      "destination": "build/en/:build"
     }
   ]
 }

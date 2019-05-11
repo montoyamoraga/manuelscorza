@@ -1,17 +1,28 @@
 {
-  "title" : "Los adioses",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/canto-a-los-mineros-de-bolivia.md"
-  ],
+  "title" : "Canto A Los Mineros De Bolivia",
+  "author": "Manuel Scorza",
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/canto-a-los-mineros-de-bolivia-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/canto-a-los-mineros-de-bolivia-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+      "destination": "build/en/:build"
     }
   ]
-  }
+}
