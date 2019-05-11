@@ -1,3 +1,9 @@
+Rumor en la nostalgia antigua  
+
+Manuel Scorza  
+
+1948  
+
 Publicado en *La Tribuna*, el domingo 5 de septiembre de 1948.
 
 Cuando la luz cansada de embestir al día  

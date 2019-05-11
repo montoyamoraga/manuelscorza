@@ -1,17 +1,29 @@
 {
-  "title" : "Los adioses",
-  "destination" : "build/",
-  "files" : [
-    "content/cover.html",
-    "content/rumor-en-la-nostalgia-antigua.md"
-  ],
+  "title" : "Rumor en la nostalgia antigua",
+  "author" : "Manuel Scorza"
+  ,
   "builds" : [
     {
       "format" : "pdf",
+      "files" : [
+        "content/rumor-en-la-nostalgia-antigua-es.md"
+      ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
         "files" : ["stylesheets/pdf.scss"]
-      }
+      },
+      "destination": "build/es/:build"
+    },
+    {
+      "format" : "pdf",
+      "files" : [
+        "content/rumor-en-la-nostalgia-antigua-en.md"
+      ],
+      "layout" : "layouts/pdf.html",
+      "stylesheets" : {
+        "files" : ["stylesheets/pdf.scss"]
+      },
+        "destination": "build/en/:build"
     }
   ]
   }
