@@ -14,16 +14,28 @@
 * Canto a los mineros de Bolivia (1952)
   * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/canto-a-los-mineros-de-bolivia-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/canto-a-los-mineros-de-bolivia-es.pdf)
   * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/canto-a-los-mineros-de-bolivia-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/canto-a-los-mineros-de-bolivia-en.pdf)~~
-* Las imprecaciones (1955) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+* Las imprecaciones (1955)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/las-imprecaciones-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/las-imprecaciones-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/las-imprecaciones-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/las-imprecaciones-en.pdf)~~
 * Los adioses (1959) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/los-adioses.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/los-adioses.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-* Desengaños del mago (1961) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/desenganos-del-mago.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/desenganos-del-mago.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-* Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/requiem-para-un-gentilhombre.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/requiem-para-un-gentilhombre.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-* Cantar de Túpac Amaru (1966) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/cantar-de-tupac-amaru.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/cantar-de-tupac-amaru.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-* El vals de los reptiles (1970) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/el-vals-de-los-reptiles.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/el-vals-de-los-reptiles.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
-* Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973) - español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/lamentando-que-hans-magnus.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/lamentando-que-hans-magnus.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/los-adioses-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/los-adioses-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/los-adioses-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/los-adioses-en.pdf)~~
+* Desengaños del mago (1961)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/desenganos-del-mago-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/desenganos-del-mago-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/desenganos-del-mago-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/desenganos-del-mago-en.pdf)~~
+* Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/requiem-para-un-gentilhombre-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/requiem-para-un-gentilhombre-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/requiem-para-un-gentilhombre-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/requiem-para-un-gentilhombre-en.pdf)~~
+* Cantar de Túpac Amaru (1966)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/cantar-de-tupac-amaru-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/cantar-de-tupac-amaru-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/cantar-de-tupac-amaru-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/cantar-de-tupac-amaru-en.pdf)~~
+
+* El vals de los reptiles (1970)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/el-vals-de-los-reptiles-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/el-vals-de-los-reptiles-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/el-vals-de-los-reptiles-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/el-vals-de-los-reptiles-en.pdf)~~
+* Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/lamentando-que-hans-magnus-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/lamentando-que-hans-magnus-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/lamentando-que-hans-magnus-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/lamentando-que-hans-magnus-en.pdf)~~
 
 ## Novelas - Novels
 
