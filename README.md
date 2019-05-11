@@ -8,8 +8,7 @@
 
 ### Poesía - Poetry
 
-* Rumor en la nostalgia antigua (1948) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/rumor-en-la-nostalgia-antigua.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/rumor-en-la-nostalgia-antigua.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+* Rumor en la nostalgia antigua (1948) - [español - markdown](./markdown/rumor-en-la-nostalgia-antigua-es.md) [español pdf](.pdf/es/rumor-en-la-nostalgia-antigua-es.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * Canto a los mineros de Bolivia (1952) -
 español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/canto-a-los-mineros-de-bolivia.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/canto-a-los-mineros-de-bolivia.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * Las imprecaciones (1955) -
