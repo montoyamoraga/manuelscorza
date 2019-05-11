@@ -9,12 +9,11 @@
 ### Poesía - Poetry
 
 * Rumor en la nostalgia antigua (1948)
-  * [español - markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/rumor-en-la-nostalgia-antigua-es.md)
-  * [español - pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/rumor-en-la-nostalgia-antigua-es.pdf)
-  * [english - markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/rumor-en-la-nostalgia-antigua-en.md)
-  * [english - pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/rumor-en-la-nostalgia-antigua-en.pdf)
-* Canto a los mineros de Bolivia (1952) -
-español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/canto-a-los-mineros-de-bolivia.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/canto-a-los-mineros-de-bolivia.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/rumor-en-la-nostalgia-antigua-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/rumor-en-la-nostalgia-antigua-es.pdf)
+  * English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/rumor-en-la-nostalgia-antigua-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/rumor-en-la-nostalgia-antigua-en.pdf)
+* Canto a los mineros de Bolivia (1952)
+  * Español: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/canto-a-los-mineros-de-bolivia-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/canto-a-los-mineros-de-bolivia-es.pdf)
+  * ~~English: [markdown](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/canto-a-los-mineros-de-bolivia-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/canto-a-los-mineros-de-bolivia-en.pdf)~~
 * Las imprecaciones (1955) -
 español  [markdown](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/markdown/las-imprecaciones.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/gh-pages/pdf/las-imprecaciones.pdf) - english ~~[markdown](markdown) [pdf](pdf)~~
 * Los adioses (1959) -
