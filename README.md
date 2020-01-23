@@ -20,12 +20,12 @@
 
 ## Novelas - Novels
 
-* Redoble por Rancas (1970) - español [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/redoble-por-rancas.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/redoble-por-rancas.pdf) - english ~~[md](markdown) [pdf](pdf)~~
-* ~~Historia de Garabombo el invisible (1972)~~
-* ~~El jinete insomne (1977)~~
-* ~~Cantar de Agapito Robles (1977)~~
-* ~~La tumba del relámpago (1979)~~
-* ~~La danza inmóvil (1983)~~
+* Redoble por Rancas (1970) - Español [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/redoble-por-rancas-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/redoble-por-rancas-es.pdf) - English ~~[md](markdown) [pdf](pdf)~~
+* ~~Historia de Garabombo el invisible (1972)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
+* ~~El jinete insomne (1977)~~  - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
+* ~~Cantar de Agapito Robles (1977)~~  - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
+* ~~La tumba del relámpago (1979)~~  - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
+* ~~La danza inmóvil (1983)~~  - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
 
 ## Videos
 
