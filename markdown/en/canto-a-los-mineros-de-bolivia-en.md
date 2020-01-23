@@ -1,4 +1,4 @@
-Rumor at the old nostalgia  
+Canto for the miners of Bolivia
 
 Manuel Scorza  
 
@@ -71,34 +71,34 @@ fed on rocks,
 drank the rains,
 broke with their hands the cage of life.
 
-En La Paz.  
-Era otoño.  
-Recordadlo.  
-Era otoño.  
-Velad por los muertos —recordadlos.  
+In La Paz.
+It was autumn.
+Remember it.
+It was autumn.
+Watch over the dead ones - remember them.
 
-La sangre derramada  
-—era otoño—  
-en el oído secreto de la tierra  
-—en el otoño—  
-y a través de su silencio  
-—era otoño—  
-descifra la raíz el idioma futuro de las flores—  
-—en el otoño—  
-y el aire siente que su cuerpo  
-—era otoño—  
-acaba en verde campanada.  
-Recordadlo.  
-
-Ya lo veis desde la altura.  
-Aquí empieza  
-la dinastía sucesora del rocío.  
-A mi patria rota me voy.  
-Mas antes de partir, decidme, mineros:  
-¿Cuándo veré esta luz en los ojos de América?  
-¿Hasta cuándo jugarán a los dados  
-la túnica sangrienta de mi patria?  
-Oh, hermanos, ruiseñores verdaderos del metal,  
-¡prestadme vuestra muerte para edificar la vida!  
+The spilled blood
+-it was autum-
+in the secret ear of the earth
+-on autumn-
+and through its silence
+-it was autumn-
+deciphers the root of the future language of the flowers-
+-on autumn-
+and the air feels how its body
+-it was autumn-
+ends in green bell toll.
+Remember it.
+  
+You already see it from the height.
+Here starts
+the successor dinasty of the dew
+I go to my broken homeland.
+But before leaving, tell me, miners:
+When will I see this light on America's eyes?
+Until when the bloody tunic of my country
+will be playing dice?
+Oh siblings, true nightingales true of the metal,
+lend me your death in order to build life! 
 
 *México, April, 1952.*  
