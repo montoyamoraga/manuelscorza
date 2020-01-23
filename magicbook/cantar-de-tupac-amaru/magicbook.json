@@ -5,7 +5,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/cantar-de-tupac-amaru-es.md"
+        "../../markdown/es/cantar-de-tupac-amaru-es.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
@@ -16,7 +16,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/cantar-de-tupac-amaru-en.md"
+        "../../markdown/en/cantar-de-tupac-amaru-en.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
