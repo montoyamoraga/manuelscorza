@@ -5,22 +5,22 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/canto-a-los-mineros-de-bolivia-es.md"
+        "../../markdown/es/canto-a-los-mineros-de-bolivia-es.md"
       ],
-      "layout" : "layouts/pdf.html",
+      "layout" : "./layouts/pdf.html",
       "stylesheets" : {
-        "files" : ["stylesheets/pdf.scss"]
+        "files" : ["./stylesheets/pdf.scss"]
       },
       "destination": "build/es/:build"
     },
     {
       "format" : "pdf",
       "files" : [
-        "content/canto-a-los-mineros-de-bolivia-en.md"
+        "../../markdown/en/canto-a-los-mineros-de-bolivia-en.md"
       ],
-      "layout" : "layouts/pdf.html",
+      "layout" : "./layouts/pdf.html",
       "stylesheets" : {
-        "files" : ["stylesheets/pdf.scss"]
+        "files" : ["./stylesheets/pdf.scss"]
       },
       "destination": "build/en/:build"
     }
