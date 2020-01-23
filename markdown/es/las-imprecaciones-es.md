@@ -1,3 +1,9 @@
+Las imprecaciones
+
+Manuel Scorza
+
+1955
+
 # 1 El árbol de los gemidos
 
 ## Epístola a los poetas que vendrán
