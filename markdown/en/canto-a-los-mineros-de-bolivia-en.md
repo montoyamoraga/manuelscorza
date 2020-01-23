@@ -4,72 +4,72 @@ Manuel Scorza
 
 1952  
 
-Hay que vivir ausente de uno mismo,  
-hay que envejecer en plena infancia,  
-hay que llorar de rodillas delante de un cadáver  
-para comprender qué noche  
-poblaba el corazón de los mineros.  
+You have to live absent from yourself,
+you have to grow old in the middle of your childhood,
+you have to cry on your knees in front of a corpse
+in order to understand which night
+populated the heart of the miners.
 
-Yo no conocía  
-la estatura melancólica del agua,  
-hasta que una tarde, en el otoño,  
-subí a El Alto, en La Paz,  
-y contemplé a los mineros ascendiendo al porvenir  
-por la escalera de sus balas fulgurantes.  
-¡Cómo olvidar a los ausentes  
-combatiendo, de memoria, en los suburbios!  
+I didn't know
+the melancholic height of the water
+until one afternoon, during autumn,
+I climbed El Alto, in La Paz,
+and I contemplated the miners ascending to the future
+through the stairs of their dazzling bullets.
+How can we forget the missing
+fighting, by heart, in the suburbs!
 
-Miré sus casas  
-edificadas sobre el trueno,  
-entré a sus vidas como al carbón ardiendo,  
-toqué sus cuerpos  
-capaces de contener odio y relámpagos,  
-cuando era todavía la edad inclinada de sus frentes.  
+I looked at their houses
+built over the thunder,
+I went inside their lives like the ablaze coal,
+I touched their bodies
+only able to hold hate and lightning bolts,
+when it was still the inclined age of their foreheads.
 
-Yo fui a Bolivia en el otoño del tiempo.  
-Pregunté por la Felicidad.  
-No respondió nadie.  
-Pregunté por la Alegría.  
-No respondió nadie.  
-Pregunté por el Amor.  
-Un ave  
-cayó sobre mi pecho con las alas incendiadas.  
-Ardía todo en el silencio.  
-En las punas hasta el silencio es de nieve.  
+I went to Bolivia in the autumn of the time
+I asked for Happiness.
+Nobody answered.
+I asked for Joy.
+Nobody answered.
+I asked for Love.
+A bird
+fell on my chest with its wings on fire.
+Everything burned in the silence.
+In the mountain sickness even silence is made out of snow.
 
-Comprendí que el estaño  
-era  
-una  
-larga  
-lágrima  
-petrificada  
-sobre el rostro espantado de Bolivia.  
-¡Nada valía el hombre!  
-¡A nadie le importaba si bajo su camisa  
-existía un cuerpo, un túnel o la muerte!  
+I understood that tin
+was
+a
+long
+petrified
+tear
+over the frightened face of Bolivia.  
+Humans were worth nothing!
+Nobody cared if under their shirt
+there was a body, a tunnel, or death!
 
-En vano cavaban los mineros  
-tratando de enterrar su gran fatiga;  
-durante siglos buscaron sus ojos ciegos en el metal,  
-sin saber que en la altura el llanto era neblina.  
-¡No haberlo sabido me avergüenza!  
-Porque en las ciudades los poetas  
-lloran la ausencia nostálgica del aire,  
-pero no saben lo que es vivir bajo la lluvia,  
-confundiendo el hambre con la sed,  
-y la sed con un pájaro pintado.  
+In vain the miners digged
+trying to bury their great fatigue;
+during centuries their blind eyes searched in the metal,
+without knowing that at that height crying was mist.
+I am ashamed of not having known it!
+Because in the cities the poets
+cry the nostalgic absence of air,
+but they don't know what living under the rain is,
+mistaking hunger for thirst,
+and thirst with a painted bird.
 
-Yo fui uno de ellos.  
-Yo no sabía por qué los ríos  
-se secan en el sueño  
-y ciertos rostros en los Andes  
-son puras miradas melancólicas.  
-Hasta que los mineros,  
-casnados de tener una sola vida para tantas muertes,  
-domesticaron truenos,  
-nutriéronse de piedras,  
-bebiéronse las lluvias,  
-rompieron con su manos la jaula de la vida.  
+I was one of them.
+I didn't know why the rivers
+dried up in the dream
+and certain faces in the Andes
+are pure melancholic gazes.
+Unitl the miners,
+tired of having only one life for so many deaths,
+tamed thunders,
+fed on rocks,
+drank the rains,
+broke with their hands the cage of life.
 
 En La Paz.  
 Era otoño.  
@@ -101,4 +101,4 @@ la túnica sangrienta de mi patria?
 Oh, hermanos, ruiseñores verdaderos del metal,  
 ¡prestadme vuestra muerte para edificar la vida!  
 
-*México, abril, 1952.*  
+*México, April, 1952.*  

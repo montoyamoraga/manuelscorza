@@ -65,11 +65,11 @@ se secan en el sueño
 y ciertos rostros en los Andes  
 son puras miradas melancólicas.  
 Hasta que los mineros,  
-casnados de tener una sola vida para tantas muertes,  
+cansados de tener una sola vida para tantas muertes,  
 domesticaron truenos,  
 nutriéronse de piedras,  
 bebiéronse las lluvias,  
-rompieron con su manos la jaula de la vida.  
+rompieron con sus manos la jaula de la vida.  
 
 En La Paz.  
 Era otoño.  
