@@ -1,4 +1,4 @@
-Canto a los mineros de Bolivia
+Rumor at the old nostalgia  
 
 Manuel Scorza  
 
