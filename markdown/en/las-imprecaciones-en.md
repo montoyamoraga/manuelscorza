@@ -1,50 +1,50 @@
-Las imprecaciones
+The imprecations
 
 Manuel Scorza
 
 1955
 
-# 1 El árbol de los gemidos
+# 1 The three of the wails
 
-## Epístola a los poetas que vendrán
+## Epistle to the poets who will come
 
-Tal vez mañana los poetas pregunten  
-por qué no celebramos la gracia de las muchachas;  
-tal vez mañana los poetas pregunten  
-por qué nuestros poemas  
-eran largas avenidas  
-por donde venía la ardiente cólera.  
+Maybe tomorrow the poets will ask
+why don't we celebrate the grace of the girls;
+maybe tomorrow will ask
+why were our poems
+long avenues
+through which the burning anger came
 
-Yo respondo:  
-por todas partes oíamos el llanto,  
-por todas partes nos sitiaba un muro de olas negras.  
-¿Iba a ser la Poesía  
-una solitaria columna de rocío?  
-Tenía que ser un relámpago perpetuo.  
+I answer:
+everywhere we heard the crying,
+everywhere we were surrounded by a wall of black waves.
+Would Poetry be
+a lonely column of dew?
+It had to be an eternal lightning.
 
-Mientras alguien padezca,  
-la rosa no podrá ser bella;  
-mientras alguien mire el pan con envidia,  
-el trigo no podrá dormir;  
-mientras llueva sobre el pecho de los mendigos,  
-mi corazón no sonreirá-  
+While someone suffers,
+the rose won't be able to be beautiful;
+while someone looks at bread with envy,
+the wheat will not be able to sleep;
+while rain falls on the chest of the beggars,
+my heart will not smile-
+ 
+Kill sadness, poets.
+Let's kill sadness with a stick.
+Don't talk about the romance of the lilies.
+There are higher things
+than crying for lost loves:
+the rumour of people who wake up
+is more beatiful than dew!
+The shining metal of their anger
+is more beautiful than foam!
+A Free Human
+is purer than diamond!
 
-Matad la tristeza, poetas.  
-Matemos a la tristeza con un palo.  
-No digáis el romance de los lirios.  
-Hay cosas más altas  
-que llorar amores perdidos:  
-el rumor de un pueblo que despierta  
-¡es más bello que el rocío!  
-El metal resplandeciente de su cólera  
-¡es más bello que la espuma!  
-Un Hombre Libre  
-¡es más puro que el diamante!  
-
-El poeta libertará al fuego  
-de su cárcel de ceniza.  
-El poeta encenderá la hoguera  
-donde se queme este mundo sombrío.  
+The poet will free fire
+from its ashen jail.
+The poet will light the bonfire
+where this somber world will burn.  
 
 ## América, no puedo escribir tu nombre sin morirme
 
