@@ -5,7 +5,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/desenganos-del-mago-es.md"
+        "../../markdown/es/desenganos-del-mago-es.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
@@ -16,7 +16,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/desenganos-del-mago-en.md"
+        "../../markdown/en/desenganos-del-mago-en.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {

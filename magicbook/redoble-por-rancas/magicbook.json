@@ -5,7 +5,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/redoble-por-rancas-es.md"
+        "../../markdown/es/redoble-por-rancas-es.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
@@ -16,7 +16,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/redoble-por-rancas-en.md"
+        "../../markdown/es/redoble-por-rancas-en.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {

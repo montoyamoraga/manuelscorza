@@ -5,7 +5,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/requiem-para-un-gentilhombre-es.md"
+        "../../markdown/es/requiem-para-un-gentilhombre-es.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
@@ -16,7 +16,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/requiem-para-un-gentilhombre-en.md"
+        "../../markdown/es/requiem-para-un-gentilhombre-en.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {

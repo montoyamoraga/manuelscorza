@@ -5,7 +5,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/las-imprecaciones-es.md"
+        "../../markdown/es/las-imprecaciones-es.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
@@ -16,7 +16,7 @@
     {
       "format" : "pdf",
       "files" : [
-        "content/las-imprecaciones-en.md"
+        "../../markdown/es/las-imprecaciones-en.md"
       ],
       "layout" : "layouts/pdf.html",
       "stylesheets" : {
