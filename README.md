@@ -31,7 +31,8 @@
 
 {% include vimeoPlayer.html id="254436587" %}
 
-* [Manuel Scorza - "En París" (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extracto del documental "En París...", por Carlos Allende, año 1970. - [Manuel Scorza - "En París" (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ): extract of the documentary "En París...", by Carlos Allende, year 1970.
+* [Manuel Scorza - "En París" (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ) - Descripción:  extracto del documental "En París...", por Carlos Allende. [Transcripción](https://github.com/montoyamoraga/manuelscorza/blob/master/interviews/1970-en-paris-es.md) - Description: excerpt from the documentary "En París...", by Carlos Allende. [Transcripctón](https://github.com/montoyamoraga/manuelscorza/blob/master/interviews/1970-en-paris-en.md)
+
 
 {% include vimeoPlayer.html id="254435743" %}
 
