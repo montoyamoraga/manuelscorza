@@ -35,7 +35,6 @@
 
 * English: [Manuel Scorza - "En París" (1970)](https://www.youtube.com/watch?v=POmYALPmzeQ) - excerpt from the documentary "En París...", by Carlos Allende. [Transcription](https://github.com/montoyamoraga/manuelscorza/blob/master/interviews/1970-en-paris-en.md)
 
-
 {% include vimeoPlayer.html id="254435743" %}
 
 * [Manuel Scorza - "A fondo" (1977)](https://www.youtube.com/watch?v=wSAubBLge1s): entrevista por [Joaquín Soler Serrano](https://es.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) en el programa [A fondo](https://es.wikipedia.org/wiki/A_fondo), emitido por la [Radiotelevisión Española](https://es.wikipedia.org/wiki/RTVE), año 1977. - [Manuel Scorza - "A fondo" (1977)](https://www.youtube.com/watch?v=wSAubBLge1s): interview by [Joaquín Soler Serrano](https://en.wikipedia.org/wiki/Joaqu%C3%ADn_Soler_Serrano) on the show [A fondo](https://en.wikipedia.org/wiki/A_fondo), broadcasted by [Radiotelevisión Española](https://en.wikipedia.org/wiki/RTVE), year 1977.
