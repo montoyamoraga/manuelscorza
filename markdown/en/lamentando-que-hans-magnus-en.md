@@ -1,89 +1,89 @@
-Los mayas que abandonaban sus ciudades prodigiosas  
-cada cincuenta y dos años  
-porque por desconocidas razones  
-todos los katunes esperaban el fin del mundo,  
-no develan jamás sus verdaderos nombres.  
-¡Correrían el riesgo de que les robaran el alma!  
-Los mayas honraban, sin embargo, a los "maestros  
-de las palabras".  
-Placenteramente  
-ofrendaban  
-cacao, moneda preciosa,  
-a los forjadores de palabras  
-más resistentes que las piedras de sus pirámides  
-abolidas.  
-¡Ensalcemos la poesía, ensalcemos el amor,  
-ensalcemos la amistad!  
-Lástima, Hans Magnus, que no estés  
-en la corola de este verano  
-en cuya terraza  
-caminan Cecilia y Sofía mejores que esas uvas  
-pero no que mi hija  
-que tiene cien días  
-y que durará más que el gobierno de Napoleón.  
-¡Celebremos la poesía, celebremos el amor,  
-celebremos la amistad!  
-La vida es breve.  
-"La vida pasa como las islas Azores", se lamentaba  
-Maiakovski.  
-¿Y qué más da?  
-Acepto que mi cuerpo  
-sea banquete de coleópteros,  
-a condición de transformame  
-en árbol  
-y luego  
-en mariposa  
-y luego  
-en liquen  
-y luego en luz.  
-Hay una mosca que olfatea desde cinco kilómetros  
-el olor de la muerte  
-y vuela  
-recta al lecho de los agonizantes.  
-Está bien.  
-¡Pero también hay el sol,  
-el vino  
-y el cuerpo de nuestras mujeres!  
-Y nuestro oficio: juntamos palabras.  
-La palabra  
-es un torreón  
-desde donde se vigila  
-tenazmente la noche  
-y entre tanto llega la hora del combate,  
-como en todas las guarniciones  
-jugamos naipes, bebemos, fornicamos, nos reímos  
-a gritos del frío  
-que un día entrará por esa puerta agitando su bastón  
-de mariscal.  
-Hoy caminaremos por el bosque, buscaremos  
-una guitarra,  
-nos bañaremos en estanques prohibidos.  
-La vida es una mierda, la vida es sublime.  
-Y Cecilia y Sofía lo saben.  
-Y más que nadie mi hija  
-que tiene los ojos rasgados,  
-los ojos de su bisabuelo mongol que tiritando cruzó  
-el estrecho de Behring  
-más que en su iglú calentándose  
-con los fuegos que encendían sus juntadores de  
-palabras.  
-¡La palabra!  
-Eso asombró al gran Atahualpa.  
-Cuando Hernando de Soto se le abalanzó al galope y  
-detuvo su caballo a un metro de su sagrada persona,  
-el Divino no se movió  
-y luego mandó ahorcar  
-a los cobardes que del prodigioso monstruo escaparon  
-como plumas de gallina  
-pero cuando conoció los libros,  
-"los papeles que hablaban"  
-desfalleció.  
-Lástima, Hans Magnus,  
-que noestés con nosotros  
-mordiendo no duraznos sino enigmas,  
-o recorriendo  
-tu infancia  
-o mi infancia  
-o simplemente oyendo el viento  
-el viento que se llevará las murallas,  
-los hombres, las bestias, las palabras, los sueños.  
+The Mayans who abandonded their prodigious cities
+every fifty-two years
+because of unknown reasons
+all the katunes waited for the end of the world,
+they never unveil their true names.
+They would risk having their souls stolen!
+The Mayans honored, nevertheless, the "masters
+of the words".
+Pleasantly
+they offered
+cocoa, precious currency,
+to the words forgers
+more resistant than the stones of their
+abolished pyramids.
+Let's praise poetry, let's praise love,
+let's praise friendship!
+What a pity, Hans Magnus, that you are not
+in the corolla of this summer
+in whose terrace
+Cecilia and Sofía walk, better than these grapes
+but not better than my daughter
+who is a hundred days old
+and who will last more than Napoleon's government.
+Let's celebrate poetry, let's celebrate love,
+let's celebrate friendship!
+Life is short.
+"Life happens like the Azores islands", lamented
+Maiakovski.
+And what else gives?
+I accept that mi body
+will be a feast for the beetles,
+on condition of transforming myself
+in tree
+and then
+in butterfly
+and then
+in lichen
+and then in light.
+There is a fly who sniffs from five kilometers away
+the smell of death
+and flies
+straight to the bed of the dying.
+It is okay.
+But there is also the sun,
+the wine
+and the bodies of our women!
+And our craft: we collected words.
+The word
+is a turret
+from which it is watched
+tenaciously the night
+and meanwhile comes the time of combat,
+like in all the garrisons
+we play cards, we drink, we fornicate, we laugh
+out loud at the cold
+that one day will go through that door waving its
+marshal cane.
+Today we will walk across the forest, we will look
+for a guitar,
+we will bathe in forbidden ponds.
+Life is shit, life is sublime.
+And Cecilia and Sofía know it.
+And more than anybody my daughter
+who has slanted eyes,
+the eyes of her Mongolian great grandfather who shivering crossed
+the Behring strait
+more than in his igloo warming up
+with the fires that lighted up his
+word collectors.
+The word!
+That astonished Atahualpa.
+When Hernando de Soto galloped at him and
+stopped his horse one meter away from his sacred person,
+the Divine didn't move
+and then ordered to hang
+the cowards who escaped from the prodigious monster
+like chicken feathers
+but when he met the books,
+"the papers that spoke"
+he fainted.
+What a pity, Hans Magnus,
+that you are not here with us
+biting not into peaches but enigmas,
+or going through
+your childhood
+or my childhood
+or simply hearing the wind
+the wind that will blow away the walls,
+the men, the beasts, the words, the dreams.
