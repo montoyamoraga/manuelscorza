@@ -4,28 +4,59 @@
 
 [Manuel Scorza](https://en.wikipedia.org/wiki/Manuel_Scorza) was a Peruvian poet, novelist and political activist. His books are currently hard to find, out of print or too expensive. This project aims to make his works widely available, both in their original Spanish and in English.
 
-## Obras - Works
+## obras en español
 
-### Poesía - Poetry
+### poesía
 
-- Rumor en la nostalgia antigua (1948) - Español [md](./markdown/es/rumor-en-la-nostalgia-antigua-es.md) [pdf](./pdf/es/rumor-en-la-nostalgia-antigua-es.pdf) - English [md](./markdown/en/rumor-en-la-nostalgia-antigua-en.md) [pdf](./pdf/en/rumor-en-la-nostalgia-antigua-en.pdf)
-- Canto a los mineros de Bolivia (1952) - Español [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/canto-a-los-mineros-de-bolivia-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/canto-a-los-mineros-de-bolivia-es.pdf) - English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/canto-a-los-mineros-de-bolivia-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/canto-a-los-mineros-de-bolivia-en.pdf)
-- Las imprecaciones (1955) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/las-imprecaciones-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/las-imprecaciones-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/las-imprecaciones-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/las-imprecaciones-en.pdf)~~
-- Los adioses (1959) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/los-adioses-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/los-adioses-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/los-adioses-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/los-adioses-en.pdf)~~
-- Desengaños del mago (1961) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/desenganos-del-mago-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/desenganos-del-mago-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/desenganos-del-mago-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/desenganos-del-mago-en.pdf)~~
-- Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/requiem-para-un-gentilhombre-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/requiem-para-un-gentilhombre-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/requiem-para-un-gentilhombre-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/requiem-para-un-gentilhombre-en.pdf)~~
-- Cantar de Túpac Amaru (1966) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/cantar-de-tupac-amaru-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/cantar-de-tupac-amaru-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/cantar-de-tupac-amaru-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/cantar-de-tupac-amaru-en.pdf)~~
-- El vals de los reptiles (1970) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/el-vals-de-los-reptiles-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/el-vals-de-los-reptiles-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/el-vals-de-los-reptiles-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/el-vals-de-los-reptiles-en.pdf)~~
-- Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973) - Español: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/lamentando-que-hans-magnus-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/lamentando-que-hans-magnus-es.pdf) - ~~English: [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/en/lamentando-que-hans-magnus-en.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/en/lamentando-que-hans-magnus-en.pdf)~~
+| nombre                                                                 | markdown                                           | pdf                                                   |
+| :--------------------------------------------------------------------- | :------------------------------------------------- | :---------------------------------------------------- |
+| Rumor en la nostalgia antigua (1948)                                   | [md](./md/es/rumor-en-la-nostalgia-antigua-es.md)  | [pdf](./pdf/es/rumor-en-la-nostalgia-antigua-es.pdf)  |
+| Canto a los mineros de Bolivia (1952)                                  | [md](./md/es/canto-a-los-mineros-de-bolivia-es.md) | [pdf](./pdf/es/canto-a-los-mineros-de-bolivia-es.pdf) |
+| Las imprecaciones (1955)                                               | [md](./md/es/las-imprecaciones-es.md)              | [pdf](./pdf/es/las-imprecaciones-es.pdf)              |
+| Los adioses (1959)                                                     | [md](./md/es/los-adioses-es.md)                    | [pdf](./pdf/es/los-adioses-es.pdf)                    |
+| Desengaños del mago (1961)                                             | [md](./md/es/desenganos-del-mago-es.md)            | [pdf](./pdf/es/desenganos-del-mago-es.pdf)            |
+| Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962) | [md](./md/es/requiem-para-un-gentilhombre-es.md)   | [pdf](./pdf/es/requiem-para-un-gentilhombre-es.pdf)   |
+| Cantar de Túpac Amaru (1966)                                           | [md](./md/es/cantar-de-tupac-amaru-es.md)          | [pdf](./pdf/es/cantar-de-tupac-amaru-es.pdf)          |
+| El vals de los reptiles (1970)                                         | [md](./md/es/el-vals-de-los-reptiles-es.md)        | [pdf](./pdf/es/el-vals-de-los-reptiles-es.pdf)        |
+| Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973) | [md](./md/es/lamentando-que-hans-magnus-es.md)     | [pdf](./pdf/es/lamentando-que-hans-magnus-es.pdf)     |
 
-## Novelas - Novels
+### novelas
 
-- Redoble por Rancas (1970) - Español [md](https://github.com/montoyamoraga/manuelscorza/blob/master/markdown/es/redoble-por-rancas-es.md) [pdf](https://github.com/montoyamoraga/manuelscorza/blob/master/pdf/es/redoble-por-rancas-es.pdf) - English ~~[md](markdown) [pdf](pdf)~~
-- ~~Historia de Garabombo el invisible (1972)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
-- ~~El jinete insomne (1977)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
-- ~~Cantar de Agapito Robles (1977)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
-- ~~La tumba del relámpago (1979)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
-- ~~La danza inmóvil (1983)~~ - Español ~~[md](markdown) [pdf](pdf)~~ - English ~~[md](markdown) [pdf](pdf)~~
+| nombre                                    | markdown                               | pdf                                       |
+| :---------------------------------------- | :------------------------------------- | :---------------------------------------- |
+| Redoble por Rancas (1970)                 | [md](./md/es/redoble-por-rancas-es.md) | [pdf](./pdf/es/redoble-por-rancas-es.pdf) |
+| Historia de Garabombo el invisible (1972) | ~~[md](./)~~                           | ~~[pdf](/)~~                              |
+| El jinete insomne (1977)                  | ~~[md](./)~~                           | ~~[pdf](/)~~                              |
+| Cantar de Agapito Robles (1977)           | ~~[md](./)~~                           | ~~[pdf](/)~~                              |
+| La tumba del relámpago (1979)             | ~~[md](./)~~                           | ~~[pdf](/)~~                              |
+| La danza inmóvil (1983)                   | ~~[md](./)~~                           | ~~[pdf](/)~~                              |
+
+## translated works from spanish to english
+
+### poetry
+
+| name                                                                   | markdown                                           | pdf                                                   |
+| :--------------------------------------------------------------------- | :------------------------------------------------- | :---------------------------------------------------- |
+| Rumor en la nostalgia antigua (1948)                                   | [md](./md/en/rumor-en-la-nostalgia-antigua-es.md)  | [pdf](./pdf/es/rumor-en-la-nostalgia-antigua-es.pdf)  |
+| Canto a los mineros de Bolivia (1952)                                  | [md](./md/en/canto-a-los-mineros-de-bolivia-es.md) | [pdf](./pdf/es/canto-a-los-mineros-de-bolivia-es.pdf) |
+| Las imprecaciones (1955)                                               | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| Los adioses (1959)                                                     | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| Desengaños del mago (1961)                                             | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962) | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| Cantar de Túpac Amaru (1966)                                           | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| El vals de los reptiles (1970)                                         | ~~[md](./md/en/)~~                                 | ~~[pdf](./pdf/en/)~~                                  |
+| Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973) | [md](./md/en/lamentando-que-hans-magnus-en.md)     | ~~[pdf](./pdf/en/)~~                                  |
+
+### novels
+
+| name                                      | markdown           | pdf                  |
+| :---------------------------------------- | :----------------- | :------------------- |
+| Redoble por Rancas (1970)                 | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
+| Historia de Garabombo el invisible (1972) | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
+| El jinete insomne (1977)                  | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
+| Cantar de Agapito Robles (1977)           | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
+| La tumba del relámpago (1979)             | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
+| La danza inmóvil (1983)                   | ~~[md](./md/en/)~~ | ~~[pdf](./pdf/en/)~~ |
 
 ## Videos
 
