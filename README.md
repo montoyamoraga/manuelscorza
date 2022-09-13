@@ -16,7 +16,7 @@
 | Los adioses (1959)                                                     | [md](./md/es/los-adioses-es.md)                    | [pdf](./pdf/es/los-adioses-es.pdf)                    |
 | Desengaños del mago (1961)                                             | [md](./md/es/desenganos-del-mago-es.md)            | [pdf](./pdf/es/desenganos-del-mago-es.pdf)            |
 | Réquiem para un gentilhombre: despedida a Fernando Quíspez Asín (1962) | [md](./md/es/requiem-para-un-gentilhombre-es.md)   | [pdf](./pdf/es/requiem-para-un-gentilhombre-es.pdf)   |
-| Cantar de Túpac Amaru (1966)                                           | [md](./md/es/cantar-de-tupac-amaru-es.md)          | [pdf](./pdf/es/cantar-de-tupac-amaru-es.pdf)          |
+| Cantar de Túpac Amaru (1966)                                           | [md](./md/es-cantar-de-tupac-amaru/)               | [pdf](./pdf/es/cantar-de-tupac-amaru-es.pdf)          |
 | El vals de los reptiles (1970)                                         | [md](./md/es/el-vals-de-los-reptiles-es.md)        | [pdf](./pdf/es/el-vals-de-los-reptiles-es.pdf)        |
 | Lamentando que Hans Magnus Enzensberger no esté en Collobrières (1973) | [md](./md/es/lamentando-que-hans-magnus-es.md)     | [pdf](./pdf/es/lamentando-que-hans-magnus-es.pdf)     |
 
